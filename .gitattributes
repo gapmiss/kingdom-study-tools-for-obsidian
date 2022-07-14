@@ -1,2 +1,2 @@
 resources/* linguist-vendored
-*.md linguist-language=Markdown
+*.md linguist-vendored=false
