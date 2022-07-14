@@ -1,0 +1,3 @@
+# Cordate
+
+**CORDATE**, CORDATED, _adjective_ \[Latin , with a different signification, from cor, the heart.\] Having the form of a heart; heart-shaped; a term used by naturalists; as a _cordate_ leaf in botany, resembling the longitudinal section of the heart. Hence, cordate-oblong, heart-shaped lengthened; cordate-lanceolate, heart-shaped, gradually tapering towards each extremity, like the head of a lance; cordate-sagittate, heart-shaped, but resembling the head of an arrow.

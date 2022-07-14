@@ -1,0 +1,7 @@
+# An
+
+**AN**, _adjective_ \[Latin unus, una, unum; Gr.\]
+
+One; noting _an_ individual, either definitely, known, certain, specified, or understood; or indefinitely, not certain, known, or specified. Definitely, as 'Noah built _an_ ark of Gopher wood.' 'Paul was _an_ eminent apostle.' Indefinitely, as 'Bring me _an_ orange.' Before a consonant the letter n is dropped, as a man; but our ancestors wrote _an_ man, _an_ king. This letter represents _an_ definitely, or indefinitely. Definitely, as 'I will take you to me for a people, and I will be to you a God.' [[Exodus 6#8|Exodus 6:8]]. Indefinitely, as 'the province of a judge is to decide controversies.' _an_ being the same word as one, should not be used with it; 'such _an_ one' is tautology; the true phrase is such one. Although _an_ a and one, are the same word, and always have the same sense, yet by custom, _an_ and a are used exclusively as a definite adjective, and one is used in numbering. Where our ancestors wrote _an_ twa, thry, we now use one, two, three. So _an_ and a are never used except with a noun; but one like other adjectives, is sometimes used without its noun, and as a substitute for it; 'one is at a loss to assign a reason for such conduct.'
+
+**AN**, in old English authors, signifies if; as, 'an it please your honor.' Gr.; Latin _an_ if or whether. It is probably _an_ imperative, like if, gif, give.

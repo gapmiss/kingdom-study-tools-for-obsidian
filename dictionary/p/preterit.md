@@ -1,0 +1,3 @@
+# Preterit
+
+**PRE'TERIT**, _adjective_ \[Latin proeteritus, proetereo; proeter, beyond, and eo, to go.\] Past; applied to the tense in grammar which expresses an action or being perfectly past or finished, often that which is just past or completed, but without a specification of time. It is called also the perfect tense; as, scripsi, I have written. We say, 'I have written a letter to my correspondent; ' in which sentence, the time is supposed to be not distant and not specified. But when the time is mentioned, we use the imperfect tense so called; as, 'I wrote to my correspondent yesterday.' In this use of the _preterit_ or perfect tense, the English differs from the French, in which j'ai ecrit heir, is correct; but I have written yesterday, would be very bad English.

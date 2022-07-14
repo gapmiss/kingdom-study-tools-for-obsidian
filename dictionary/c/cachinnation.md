@@ -1,0 +1,3 @@
+# Cachinnation
+
+**CACHINNATION**, _noun_ A variety of chalcedony, which is a subspecies of quartz, usually milk white, some times grayish or yellowish white; opake or slightly translucent at the edges. Its fracture is even, or conchoidal with large cavities, sometimes dull, sometimes pearly or glossy. It often envelops common chalcedony; the two minerals being united by insensible shades. It also associates with flint and semi-opal.

@@ -1,0 +1,5 @@
+# Oxygen
+
+**OX'YGEN**, _noun_ \[Gr. acid, and to generate.\]
+
+In chemistry, _oxygen_ or _oxygen_ gas is an element or substance so named from its property of generating acids; it is the respirable part of air, vital air, or the basis of it; it is called the acidifying principle, and the principle or support of combustion. Modern experiments, however, prove that it is not necessary in all cases to combustion or to acidity. _oxygen_ is a permanently elastic fluid, invisible, inodorous, and a little heavier than atmospheric air. In union with azote or nitrogen, it forms atmospheric air, of which it constitutes about a fifth part. Water contains about 85% of it, and it exists in most vegetable and animal products, acids, salts and oxyds. It forms 50% of silex, 47 of alumin, 28 of lime, 40 of magnesia, 17 of potash, and 25 of soda.

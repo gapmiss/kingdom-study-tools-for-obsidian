@@ -1,0 +1,3 @@
+# Legislature
+
+**LEG'ISLATURE**, _noun_ the body of men in a state or kingdom, invested with power to make and repeal laws; the supreme power of a state. The _legislature_ of Great Britain consists of the house of lords and the house of commons with the king, whose sanction is necessary to every bill before it becomes a law. The legislatures of most of the states in America, consist of two houses or branches, but the sanction of the govenor is required to give their acts the force of law, or a concurrence of two thirds of the two houses, after he has declined and assigned his objections.

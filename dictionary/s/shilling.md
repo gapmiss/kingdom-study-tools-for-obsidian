@@ -1,0 +1,5 @@
+# Shilling
+
+**SHIL'LING**, _noun_ An English silver coin equal to twelve pence, or the twentieth part of a pound. The English _shilling_ or _shilling_ sterling, is equivilent to nearly 22 cents, 22 hundredths, money of the United States. Our ancestors introduced the name with the coin into this country, but by depreciation the value of the _shilling_ shrunk in New England and Virginia one fourth, or to a fraction less than 17 cents, in New York to 12 1/2 cents, in Pennsylvania, New Jersey and Maryland to about 11 cents.
+
+This denomination of money still subsists in the United States, although there is no coin of that value current, except the Spanish coin of 12 1/2/ cents, which is a _shilling_ in the money in the state of New York. Since the adoption of the present coins of the United States, eagles, dollars, cents, etc. the use of the _shilling_ is continued only by habit.

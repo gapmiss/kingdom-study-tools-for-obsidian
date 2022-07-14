@@ -1,0 +1,3 @@
+# Plough
+
+**PLOUGH**. \[See [[Plow]].\]

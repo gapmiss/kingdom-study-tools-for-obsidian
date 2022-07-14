@@ -1,0 +1,3 @@
+# Selfishly
+
+**SELF'ISHLY**, _adverb_ The exclusive of a person to his own interest or happiness; or that supreme self-love or self-preference, which leads a person in his actions to direct his purposes to the advancement of his own interest, power or happiness, without regarding the interest of others. Selfishness, in its worst or unqualified sense, is the ver essence of human depravity, and it stands in direct opposition to _benevolence_, which is the essence of the divine character. As God is _love_, so man, in his natural state, is _selfishness_.

@@ -1,0 +1,3 @@
+# Allege
+
+**ALLEGE**. \[See [[Alledge]].\]

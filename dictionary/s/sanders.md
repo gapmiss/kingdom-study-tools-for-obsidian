@@ -1,0 +1,5 @@
+# Sanders
+
+**SAN'DERS**, _noun_
+
+A kind of wood which grows in the East Indies and on some of the isles of the Pacific. It is of three kinds, the white, the yellow, and the red. The tree which produces the two former is of the genus Santalum. It grows to the size of a walnut tree. Its wood has a bitter taste and an aromatic smell. The oriental nations burn it in their houses for the sake of its fragrant odor, and with the powder of it a paste is prepared, with which they anoint their bodies. The white and the yellow sandal-wood are different parts of the same tree; the white is the wood next to the bark; the yellow is the inner part of the tree. The red sandal-wood is obtained from a different tree, the Pierocarpus santolinus. It is of a dull red color, has little taste or smell, and is principally used as a coloring drug.

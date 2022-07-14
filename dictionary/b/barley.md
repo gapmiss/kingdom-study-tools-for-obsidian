@@ -1,0 +1,3 @@
+# Barley
+
+**B'ARLEY**, _noun_ \[Latin far; Heb. bar, corn.\] A species of valuable grain, used especially for making malt, from which are distilled liquors of extensive use, as beer, ale and porter. It is of the genus hordeum, consisting of several species. Those principally cultivated in England, are the common spring _barley_ the long eared _barley_ the winter or square _barley_ by some called big, and the sprat or battledore _barley_ This grain is used in medicine, as possessing emollient, diluent, and expectorant qualities.

@@ -1,0 +1,3 @@
+# Indecorous
+
+**INDEC'OROUS**, _adjective_ \[Latin indecorus; in and decor, decus, deceo, to become.\] Unbecoming; violating good manners; contrary to the established rules of good breeding, or to the forms of respect which age and station require. It is _indecorous_ in a young person to take the highest place in company, when his superiors are present. _indecorous_ is sometimes equivalent to indecent; but it is less frequently applied to actions which offend modesty and chastity.

@@ -1,0 +1,3 @@
+# Preservation
+
+**PRESERVA'TION**, _noun_ The act of preserving or keeping safe; the act of keeping from injury, destruction or decay; as the _preservation_ of life or health; the _preservation_ of buildings from fire or decay; the _preservation_ of grain from insects; the _preservation_ of fruit or plants. When a thing is kept entirely from decay, or nearly in its original state, we say it is in a high state of _preservation_

@@ -1,0 +1,3 @@
+# Empeach
+
+**EMPEACH**, \[See [[Impeach]].\]

@@ -1,0 +1,3 @@
+# Vulture
+
+**VULTURE**, _noun_ A genus of fowls, belonging to the order of Accipiters. The bill is straight, but hooked at the end, and covered at the base by a cere of skin. The head is naked. There are thirteen species, all carnivorous and rapacious. The vultur is one of the largest kinds of fowls, and the Condor of South America, one of this family, is the largest species of flying animals that has been discovered.

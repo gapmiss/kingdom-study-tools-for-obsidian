@@ -1,0 +1,3 @@
+# Elisor
+
+**ELI'SOR**, _noun_ s as z. In law, a sheriff's substitute for returning a jury. When the sheriff is not an indifferent person, as when he is a party to a suit, or related by blood or affinity to either of the parties, the venire is issued to the coroners; or if any exception lies to the coroners, the venire shall be directed to two clerks of the court, or to two persons of the county, named by the court, and sworn; and these, who are called elisors or electors, shall return the jury.

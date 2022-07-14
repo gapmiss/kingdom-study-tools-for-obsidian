@@ -1,0 +1,3 @@
+# Anotta
+
+**ANOT'TA**, _noun_ An elegant red color, formed from the pellicles or pulp of the seeds of the bixa, a tree common in South America. This is called also Terra Orleana and Roco. The annotta is made by steeping the seeds for seven or eight days, pounding them to separate the red skins, then straining the liquor, boiling it, taking off the scum which is the coloring matter, then boiling it to a due consistence, and making it into balls.

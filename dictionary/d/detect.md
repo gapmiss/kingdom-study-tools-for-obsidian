@@ -1,0 +1,3 @@
+# Detect
+
+**DETECT**, _verb transitive_ \[Latin , to cover.\] Literally, to uncover; hence, to discover; to find out; to bring to light; as, to _detect_ the ramifications and inosculations of the fine vessels. But this word is especially applied to the discovery of secret crimes and artifices. We _detect_ a thief, or the crime of stealing. We _detect_ the artifices of the man, or the man himself. We _detect_ what is concealed, especially what is concealed by design.

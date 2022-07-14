@@ -1,0 +1,3 @@
+# Swanimote
+
+**SWAN'IMOTE**, _noun_ \[swain and mote, meeting.\] In England, a court held before the verderors of the forest as judges, by the steward of the court, thrice every year; the swains or freeholders within the forest composing the jury. Its principal jurisdiction is to inquire into the oppressions and grievances committed by the officers of the forest. It receives and tries also presentments certified from the court of attachments against offenses in vert and venison. This court is incident to a forest, as a court of piepoudre is to a fair.

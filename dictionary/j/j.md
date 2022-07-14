@@ -1,0 +1,3 @@
+# J
+
+**J**. This letter has been added to the English Alphabet in modern days; the letter I being written formerly in words where _j_ is now used. It seems to have had the sound of y, in many words, as it still has in the German. The English sound of this letter may be expressed by dzh, or edzh, a compound sound coinciding exactly with that of g, in genius; the French _j_ with the articulation d preceding it. It is the tenth letter of the English Alphabet.

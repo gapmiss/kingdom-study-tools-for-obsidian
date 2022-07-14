@@ -1,0 +1,3 @@
+# Dimension
+
+**DIMENSION**, _noun_ \[Latin , to measure; Gr. See [[Mete and Measure]].\] In geometry, the extent of a body, or length, breadth and thickness or depth. A line has one _dimension_ or length; a superficies has two dimensions, length and breadth; and a solid has three dimensions, length, breadth and thickness or depth. The word is generally used int eh plural, and denotes the whole space occupied by a body, or its capacity, size, measure; as the dimensions of a room, or of a ship; the dimensions of a farm, of a kingdom, etc.

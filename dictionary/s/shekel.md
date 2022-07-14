@@ -1,0 +1,3 @@
+# Shekel
+
+**SHEK'EL**, _noun_ \[Heb. to way; Low Latin _siclus_.\] An ancient weight and coin among the Jews and other nations of the same stock. Dr. Arbuthnot makes the weight to have been equal to 9 pennyweights, 2 4/7 grains, Troy weight, and the value of [[2 Samuel 3#1|2 Samuel 3:1]] 3/8d. sterling, or about half a dollar. Others make its value 2 Sam 6d. sterling. The golden _shekel_ was worht 1. 16. 6. pounds sterling, about $8, 12.

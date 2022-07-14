@@ -1,0 +1,3 @@
+# Extimulation
+
+**EXTIMULATION**. \[See [[Stimulation]].\]

@@ -1,0 +1,3 @@
+# Linseed
+
+**LINSEED**. \[See [[Lintseed]].\]

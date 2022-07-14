@@ -1,0 +1,3 @@
+# Torpedo
+
+**TORPE'DO**, _noun_ \[Latin from torpeo, to be numb.\] The cramp fish or electric ray, Raia _torpedo_ This fish is usually taken in forty fathoms water, on the coast of France and England, and in the Mediterranean. A touch of this fish occasions a numbness in the limb, accompanied with an indescribable and painful sensation, and is really an electric shock. When dead, the fish loses its power of producing this sensation.

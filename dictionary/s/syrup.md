@@ -1,0 +1,3 @@
+# Syrup
+
+**SYRUP**. \[See [[Sirup]].\]

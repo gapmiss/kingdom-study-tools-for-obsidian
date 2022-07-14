@@ -1,0 +1,3 @@
+# Ischiadic
+
+**ISCHIAD'IC**, _adjective_ \[Latin ischiadicus, from ischias, the sciatica, from ischium, the hip.\] Pertaining to the hip. The _ischiadic_ passion or disease is ranked by Cullen with rheumatism. It is a rheumatic affection of the hip joint. It is called also sciatica. It is sometimes seated in the tendinous expansion which covers the muscles of the thigh, but its most common seat is in the muscles, or in the capsular ligament, and it is then either rheumatic or gouty.

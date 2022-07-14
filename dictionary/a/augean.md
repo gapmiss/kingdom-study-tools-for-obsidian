@@ -1,0 +1,3 @@
+# Augean
+
+**AUGE'AN**, _adjective_ The _augean_ stable, in Grecian mythology, is represented as belonging to Augeas or Augias, one of the Argonauts, and afterwards king of Elis. This prince kept a great number of oxen, in a stable which was never cleansed, until Hercules undertook the task; a task which it seemed impracticable to execute. Hence the _augean_ stable came to represent what is deemed impracticable, or a place which has not, for a long time been cleansed.

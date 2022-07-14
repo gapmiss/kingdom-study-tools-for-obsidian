@@ -1,0 +1,3 @@
+# Promulgate
+
+**PROMUL'GATE**, _verb transitive_ \[Latin promulgo.\] To publish; to make known by open declaration; as, to _promulgate_ the secrets of a council. It is particularly applied to the publication of laws and the gospel. The moral law was promulgated at mount Sinai. The apostles promulgated the gospel. Edicts, laws and orders are promulgated by circular letters, or through the medium of the public prints.

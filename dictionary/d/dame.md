@@ -1,0 +1,3 @@
+# Dame
+
+**DAME**, _noun_ \[Gr., to subdue\] Literally, a mistress; hence, a lady; a title of honor to a woman. It is now generally applied to the mistress of a family in the common ranks of life; as is its compound, madam. In poetry, it is applied to a woman of rank, In short, it is applied with propriety to any woman who is or has been the mistress of a family, and it sometimes comprehends women in general.

@@ -1,0 +1,3 @@
+# Differential
+
+**DIFFERENTIAL**, _adjective_ An epithet applied to an infinitely small quantity, so small as to be less than any assignable quantity. This is called a _differential_ quantity. The _differential_ method is applied to the doctrine of infinitesimals, or infinitely small quantities, called the arithmetic of fluxions. It consists in descending from whole quantities to their infinitely small differences, and comparing them. Hence it is called the _differential_ calculus, or analysis of infinitesimals.

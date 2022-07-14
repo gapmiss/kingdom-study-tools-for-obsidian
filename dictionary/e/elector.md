@@ -1,0 +1,3 @@
+# Elector
+
+**ELECT'OR**, _noun_ One who elects, or one who has the right of choice; a person who has, by law or constitution, the right of voting for an officer, In free governments, the people or such of them as possess certain qualifications of age, character and property, are the electors of their representatives, etc., in parliament, assembly, or other legislative body. In the United States, certain persons are appointed or chosen to be electors of the president or chief magistrate. In Germany, certain princes were formerly electors of the emperor, and _elector_ was one of their titles, as the _elector_ of Saxony.

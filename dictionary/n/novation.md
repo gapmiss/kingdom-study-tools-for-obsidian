@@ -1,0 +1,3 @@
+# Novation
+
+**NOVATION**. \[See [[Innovation]].\]

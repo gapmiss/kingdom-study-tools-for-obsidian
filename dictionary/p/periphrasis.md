@@ -1,0 +1,3 @@
+# Periphrasis
+
+**PERIPHRASIS**. \[See [[Periphrase]].\]

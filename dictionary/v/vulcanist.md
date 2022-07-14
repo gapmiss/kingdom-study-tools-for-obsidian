@@ -1,0 +1,3 @@
+# Vulcanist
+
+**VULCANIST**. \[See [[Volcanist]].\]

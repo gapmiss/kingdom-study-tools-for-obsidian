@@ -1,0 +1,3 @@
+# Ensnare
+
+**ENSNARE**, \[See [[Insnare]].\]

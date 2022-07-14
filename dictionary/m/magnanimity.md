@@ -1,0 +1,3 @@
+# Magnanimity
+
+**MAGNANIM'ITY**, _noun_ \[Latin magnanimitas; magnus, great, and animus, mind.\] Greatness of mind; that elevation or dignity of soul, which encounters danger and trouble with tranquillity and firmness, which raises the possessor above revenge, and makes him delight in acts of benevolence, which makes him disdain injustice and meanness, and prompts him to sacrifice personal ease, interest and safety for the accomplishment of useful and noble objects.

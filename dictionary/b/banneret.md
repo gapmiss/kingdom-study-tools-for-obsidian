@@ -1,0 +1,3 @@
+# Banneret
+
+**BAN'NERET**, _noun_ A knight made in the field. Bannerets formerly constituted an order of knights or feudal lords, who led their vassals to battle under their own flags. On the day of battle, the candidates presented their flags to the king or general, who cut off the train or skirt, and made it square. They were then called knights of the square flag. They were a middle order between barons and simple knights.

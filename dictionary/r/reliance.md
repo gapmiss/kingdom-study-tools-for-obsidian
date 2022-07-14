@@ -1,0 +1,3 @@
+# Reliance
+
+**RELI'ANCE**, _noun_ \[from rely.\] Rest or repose of mind, resulting from a full belief of the veracity or integrity of a person, or of the certainty of a fact; trust; confidence; dependence. We may have perfect _reliance_ on the promises of God; we have _reliance_ on the testimony of witnesses; we place _reliance_ on men of known integrity, or on the strength and stability of government.

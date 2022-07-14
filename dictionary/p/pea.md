@@ -1,0 +1,3 @@
+# Pea
+
+**PEA**, _noun_ \[Latin pisum.\] A plant and its fruit of the genus Pisum, of many varieties. This plant has a papilionaceous flower, and the pericarp is a legume, called in popular language a pod. In the plural, we write peas, for two or more individual seeds, but pease, for an indefinite number in quantity of bulk. We write two, three or four peas, but a bushel of pease. \[This practice is arbitrary.\]

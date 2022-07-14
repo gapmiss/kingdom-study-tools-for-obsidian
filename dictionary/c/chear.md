@@ -1,0 +1,3 @@
+# Chear
+
+**CHEAR**, \[See [[Cheer]].\]

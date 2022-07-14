@@ -1,0 +1,3 @@
+# Spriteliness
+
+**SPRITELINESS**. \[See [[Sprightliness]].\]

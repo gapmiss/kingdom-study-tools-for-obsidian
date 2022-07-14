@@ -1,0 +1,3 @@
+# Theorbo
+
+**THEOR'BO**, _noun_ A musical instrument made like a large lute, except that it has two necks or juga, the second and longer of which sustains the four last rows of chords, which are to give the deepest sounds. The _theorbo_ has eight base or thick strings twice as long as those of the lute, which excess of length renders the sound exceedingly soft, and continues it a great length of time.

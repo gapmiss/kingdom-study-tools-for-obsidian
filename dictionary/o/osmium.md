@@ -1,0 +1,3 @@
+# Osmium
+
+**OS'MIUM**, _noun_ \[Gr. odor.\] A metal recently discovered, and contained in the ore of platinum. A native alloy of this metal with iridium is found in grains along the rivers in South America. _osmium_ has a dark gray color; it is not volatile when heated in close vessels, but heated in the open air, it absorbs oxygen and forms a volatile oxyd. It is insoluble in the acids, readily soluble in potassa and very volatile. It takes its name from the singular smell of its oxyd.

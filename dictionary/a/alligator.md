@@ -1,0 +1,5 @@
+# Alligator
+
+**ALLIGA'TOR**, _noun_ \[The Latin word seems to be connected with lacertus, the arm; and the animal may be named from the resemblance of his legs to arms.\]
+
+The American crocodile. This animal is of the lizard genus, having a long naked body, four feet, with five toes on the fore feet, and four on the hind, armed with claws, a serrated tail. The mouth is very large, and furnished with sharp teeth; the skin is brown, tough, and, on the sides, covered with tubercles. The largest of these animals grow to the length of seventeen or eighteen feet. They live in and about the rivers in warm climates, eat fish, and sometimes catch hogs, on the shore, or dogs which are swimming. In winter, they burrow in the earth, which they enter under water and work upwards, lying torpid till spring. The female lays a great number of eggs, which are deposited in the sand, and left to be hatched by the heat of the sun.

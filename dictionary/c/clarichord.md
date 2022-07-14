@@ -1,0 +1,3 @@
+# Clarichord
+
+**CLARICHORD**, _noun_ A musical instrument in form of a spinet, called also manichord. It has forty nine or fifty stops or keys, and seventy strings; some of the latter being in unison. There are several little mortises for passing the jacks, armed with brass hooks, which stop and raise the chords, instead of the feather used in virginals and spinets. The chords are covered with pieces of cloth, which deaden the sound and render it sweeter. Hence it is particularly used by nuns.

@@ -1,0 +1,3 @@
+# Entrochite
+
+**EN'TROCHITE**, _noun_ \[Gr. a wheel.\] A kind of extraneous fossil, usually about an inch in length, and made up of round joints, which, when separated, are called trochites. These seem to be composed of the same kind of substance as the fossil shells of the echini. They are striated from the center to the circumference and have a cavity in the middle. They appear to be the petrified arms of the seastar, called stella arborescens.

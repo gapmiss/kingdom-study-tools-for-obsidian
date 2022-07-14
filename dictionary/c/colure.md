@@ -1,0 +1,3 @@
+# Colure
+
+**COLURE**, _noun_ In astronomy and geography, the colures are two great circles supposed to intersect each other at right angles, in the poles of the world, one of them passing through the solstitial and the other through the equinoctial points of the ecliptic, viz. Cancer and Capricorn, Aries and Libra, dividing the ecliptic into four equal parts. The points where these lines intersect the ecliptic are called cardinal points.

@@ -1,0 +1,3 @@
+# Punctuation
+
+**PUNCTUA'TION**, _noun_ In grammar, the act or art of pointing a writing or discourse, or the act or art of marking with points the divisions of a discourse into sentences and clauses or members of a sentence. _punctuation_ is performed by four points, the period (.); the colon (: ); the semicolon ( ; ); and the comma (, ). The ancients were unacquainted with punctuation; they wrote without any distinction of members, period or words.

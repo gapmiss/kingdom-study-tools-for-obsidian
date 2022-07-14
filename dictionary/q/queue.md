@@ -1,0 +1,3 @@
+# Queue
+
+**QUEUE**. \[See [[Cue]].\]

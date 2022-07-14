@@ -1,0 +1,3 @@
+# Centner
+
+**CENTNER**, _noun_ In metallurgy and assaying, a docimastic hundred; a weight divisible first into a hundred parts, and then into smaller parts. The metallurgists use a weight divided into a hundred equal parts, each one pound; the whole they call a centner; the pound is divided into thirty-two parts or half ounces; the half ounce into two quarters, and each of these into two drams. But the assayers use different weights. With them a _centner_ is one dram, to which the other parts are proportioned.

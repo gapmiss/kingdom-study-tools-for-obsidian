@@ -1,0 +1,3 @@
+# Credibility
+
+**CREDIBILITY**, _noun_ \[Latin\] Credibleness; the quality or state of a thing which renders it possible to be believed, or which admits belief, on rational principles; the quality or state of a thing which involves no contradiction, or absurdity. _credibility_ is less than certainty, and greater than possibility; indeed it is less than probability, but is nearly allied to it. \[See [[Credible]].\]

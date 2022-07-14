@@ -1,0 +1,3 @@
+# Cornel
+
+**CORNEL**, CORNEL-TREE, CORNELIAN-TREE, _noun_ \[Latin , a horn, or its root, from the hardness of the wood.\] The cornelian cherry or dog-wood, a genus of plants of several species. The mascula, or cornelian cherry tree, has a stem of twenty feet high, branching and forming a large head, garnished with oblong leaves and small umbels of yellowish-green flowers, succeeded by small, red, acid, eatable, cherry-like fruit. \[See [[Carnelian]].\]

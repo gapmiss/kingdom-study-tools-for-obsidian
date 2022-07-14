@@ -1,0 +1,3 @@
+# Crenate
+
+**CRENATE**, CRENATED, _adjective_ \[Latin , a notch. See [[Cranny]].\] Notched; indented; scolloped. In botany, a _crenate_ leaf has its edge, as it were, cut with angular or circular incisures, not inclining towards either extremity. When the scallops are segments of small circles, it is said to be obtusely crenated; when the larger segments have smaller ones upon them, a leaf is said to be doubly _crenate_

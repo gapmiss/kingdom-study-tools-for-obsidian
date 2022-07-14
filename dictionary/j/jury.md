@@ -1,0 +1,3 @@
+# Jury
+
+**JU'RY**, _noun_ \[Latin juro, to swear.\] A number of freeholders, selected in the manner prescribed by law, empaneled and sworn to inquire into and try any matter of fact, and to declare the truth on the evidence given them in the case. Grand juries consist usually of twenty four freeholders at least, and are summoned to try matters alleged in indictments. Petty juries, consisting usually of twelve men, attend courts to try matters of fact in civil causes, and to decide both the law and the fact in criminal prosecutions. The decision of a petty _jury_ is called a verdict.

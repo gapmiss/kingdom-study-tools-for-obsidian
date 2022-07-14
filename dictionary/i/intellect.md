@@ -1,0 +1,3 @@
+# Intellect
+
+**IN'TELLECT**, _noun_ \[Latin intellectus, from intelligo, to understand. See [[Intelligence]].\] That faculty of the human soul or mind, which receives or comprehends the ideas communicated to it by the senses or by perception, or by other means; the faculty of thinking; otherwise called the understanding. A clear _intellect_ receives and entertains the same ideas which another communicates with perspicuity.

@@ -1,0 +1,5 @@
+# Bulb
+
+**BULB**, _noun_ \[Latin bulbus, a _bulb_ or round root.\] A round body, applied to many objects. But in botany, it is appropriately a bud formed under ground, upon or near the roots of certain herbaceous plants, which are hence called bulbous plants, as the tulip, onion and lily. The _bulb_ under ground is what the bud is upon the stem or branches, a hybernacle or winter receptacle of a future plant, containing the plant in embryo, covered with a bark or rind, generally consisting of scales placed over each other, to defend the tender rudiments of the plant from cold and other external injuries. A _bulb_ is scaly in the lily, solid in the tulip, coated in the onion, and jointed in the tuberous moschatel.
+
+**BULB**, _verb intransitive_ To _bulb_ out is to project or be protuberant. \[Little used.\]

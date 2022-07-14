@@ -1,0 +1,3 @@
+# Bonze
+
+**BON'ZE**, _noun_ bon'zy. An Indian priest; a name used in China, Tunkin and the neighboring countries. In China, the Bonzes are the priests of the Fohists, or sect of Fohi. They are distinguished from the laity by their dress. In Japan, they are gentlemen of family. In Tunkin, every pagoda has at least two bonzes belonging to it, and some have thirty or forty. In China, the number of bonzes is estimated at fifty thousand, and they are represented as idle dissolute men.

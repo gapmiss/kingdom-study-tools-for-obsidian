@@ -1,0 +1,3 @@
+# Escouade
+
+**ESCOUADE**. \[See [[Squad]].\]

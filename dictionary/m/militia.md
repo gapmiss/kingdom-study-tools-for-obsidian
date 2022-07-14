@@ -1,0 +1,3 @@
+# Militia
+
+**MILI'TIA**, _noun_ \[Latin from miles, a soldier; Gr. war, to fight, combat, contention. The primary sense of fighting is to strive, struggle, drive, or to strike, to beat, Eng. moil, Latin molior; Heb. to labor or toil.\] The body of soldiers in a state enrolled for discipline, but not engaged in actual service except in emergencies; as distinguished from regular troops, whose sole occupation is war or military service. The _militia_ of a country are the able bodied men organized into companies, regiments and brigades, with officers of all grades, and required by law to attend military exercises on certain days only, but at other times left to pursue their usual occupations.

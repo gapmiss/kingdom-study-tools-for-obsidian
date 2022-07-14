@@ -1,0 +1,3 @@
+# Politics
+
+**POL'ITICS**, _noun_ The science of government; that part of ethics which consists in the regulation and government of a nation or state, for the preservation of its safety, peace and prosperity; comprehending the defense of its existence and rights against foreign control or conquest, the augmentation of its strength and resources, and the protection of its citizens in their rights, with the preservation and improvement of their morals. _politics_ as a science or an art, is a subject of vast extent and importance.

@@ -1,0 +1,5 @@
+# Coralline
+
+**CORALLINE**, _adjective_ Consisting of coral; like coral; containing coral.
+
+**CORALLINE**, _noun_ A submarine plant-like body, consisting of many slender, jointed branches, resembling some species of moss; or animals growing in the form of plants, having their stems fixed to other bodies. These stems are composed of capillary tubes, which pass through a calcarious crust and open on the surface. In the Linnean system, corallines are classed with the zoophytes. They have been distributed by Ellis into vesiculated, furnished with small bodies like bladders; tubular, composed of simple tubes; celliferous, which, when magnified, appear to be fine thin cells, the habitations of small animals; and articulated, consisting of short pieces of stony or cretaceous brittle matter, covered with pores or cells, joined by a tough, membranous, flexible substance, composed of many small tubes. Butin this arrangement of Ellis, the term _coralline_ is synonymous with the more ancient term lithophyta, including all the polypebearing animals, and nearly coinciding with the zoophyta of Linne, and the polypiers of the French naturalists.

@@ -1,0 +1,3 @@
+# Symbal
+
+**SYMBAL**. \[See [[Cymbal]].\]

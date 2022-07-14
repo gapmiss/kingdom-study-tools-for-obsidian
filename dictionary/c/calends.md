@@ -1,0 +1,3 @@
+# Calends
+
+**CALENDS**, _noun_ _plural_ Among the Romans, the fist day of each month. The origin of this name is differently related. Varro supposes it to have originated in the practice of notifying the time of the new moon, by a priest who called out or proclaimed the fact, to the people, and the number of the _calends_ or the day of the nones. Others alledge that the people be convened, the pontifex proclaimed the several feasts or holidays in the month; a custom which was discontinued in the year of Rom 450, when the fasti or calendar was set up in public places, to give notice of the festivals.

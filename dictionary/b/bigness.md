@@ -1,0 +1,3 @@
+# Bigness
+
+**BIG'NESS**, _noun_ Bulk; size; largeness; dimensions. It is used of any object, animate or inanimate, and with or without comparison. Thus we speak of the _bigness_ of a tree, of a rock, of a house, without instituting a comparison with other objects of the kind. Yet in this case there is always some reference in the mind to known measure. We also say, one thing is as big as another; in which case we give the idea of unknown size, by a known object. Big and _bigness_ always imply expansion, more or less, in breadth, and are thus distinguished from tall and tallness.

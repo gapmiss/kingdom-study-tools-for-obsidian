@@ -1,0 +1,3 @@
+# Cupel
+
+**CUPEL**, _noun_ \[Latin , a little cup.\] A small cup or vessel used in refining metals. It retains them while in a metallic state, but when changed by fire into a fluid scoria, it absorbs them. Thus when a mixture of lead with gold or silver is heated in a strong fire, the lead is oxydated and vitrified, and sinks into the substance of the _cupel_ while the gold or silver remains pure. This kind of vessel is made usually of phosphate of lim, or the residue of burnt bones, rammed into a mold, which gives it its figure.

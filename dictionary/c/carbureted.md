@@ -1,0 +1,3 @@
+# Carbureted
+
+**CARBURETED**, _adjective_ Combined with carbon, or holding carbon in colution; as _carbureted_ hydrogen gas. _carbureted_ hydrogen consists of one prime equivalent of each. _carbureted_ hydrogen gas is called hydro-carbonate, being resolvable into carbonic acid and water, by combustion with oxygen. _carbureted_ is applied to gaseous compounds. Thus we say _carbureted_ hydrogen, instead of carburet of hydrogen.

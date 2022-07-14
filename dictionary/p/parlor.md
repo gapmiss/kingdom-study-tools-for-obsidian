@@ -1,0 +1,3 @@
+# Parlor
+
+**P'ARLOR**, _noun_ Primarily, the apartment in a nunnery where the nuns are permitted to meet and converse with each other; hence with us, the room in a house which the family usually occupy when they have no company, as distinguished from a drawing room intended for the reception of company, or from a dining room, when a distinct apartment is allotted for that purpose. In most houses, the _parlor_ is also the dining room.

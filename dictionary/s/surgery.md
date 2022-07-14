@@ -1,0 +1,3 @@
+# Surgery
+
+**SUR'GERY**, _noun_ Properly, the act of healing by manual operation; or that branch of medical science which treats of manual operations for the healing of diseases or injuries of the body. In a more general sense, the act of healing external diseases by manual operation or by medicines; or that branch of medical science which has for its principal object the cure of external injuries.

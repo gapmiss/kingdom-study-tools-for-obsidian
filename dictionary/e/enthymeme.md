@@ -1,0 +1,3 @@
+# Enthymeme
+
+**EN'THYMEME**, _noun_ \[Gr. to think or conceive; mind.\] In rhetoric, an argument consisting of only two propositions, an antecedent and a consequent deduced from it; as, we are dependent, therefore we should be humble. Here the major proposition is suppressed; the complete syllogism would be, dependent creatures should be humble; we are dependent creatures; therefore we should be humble.

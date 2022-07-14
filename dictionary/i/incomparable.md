@@ -1,0 +1,3 @@
+# Incomparable
+
+**INCOM'PARABLE**, _adjective_ \[in and comparable.\] That admits of no comparison with others; usually in a good sense, but it may be properly used in a bad sense. When we say, an _incomparable_ man, we mean a man of good qualities, or of some excellence that raises him above comparison or equality with others. So we say, _incomparable_ excellence, virtue, wit, etc. But _incomparable_ baseness or malignity may be used with propriety.

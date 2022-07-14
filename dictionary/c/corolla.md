@@ -1,0 +1,3 @@
+# Corolla
+
+COROL, COROLLA _noun_ \[Latin , a little crown.\] In botany, the inner covering of a flower. The corol surrounds the parts of fructification, and is composed of one or more flower leaves, called petals. It is distinguished from the perianth, by the fineness of its texture and the gayness of its colors; but there are many exceptions. It is sometimes inaccurately called blossom and flower.

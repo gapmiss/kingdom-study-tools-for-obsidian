@@ -1,0 +1,3 @@
+# Simile
+
+**SIMILE**, _noun_ sim'ily. \[Latin\] In rhetoric, similitude; a comparison of two thing which, however different in other respects, have some strong point or points of resemblance; by which comparison, the character or qualities of a thing are illustrated or presented in an impressive light. Thus, the eloquence of Demosthenes was like a rapid torrent; that of Cicero, like a large stream that glides smoothly along with majestic tranquility.

@@ -1,0 +1,3 @@
+# Albigenses
+
+**ALBIGEN'SES**, ALBEGEOIS, _noun_ A party of Reformers, who separated from the church of Rome, in the 12th century; so called from the Albegeois, a small territory in France, where they resided. They are sometimes confounded with the Waldenses; but they were prior to them in time, differed from them in some of their tenets, and resided in a different part of France. The Catholics made war upon them, and they gradually dwindled, till the reformation, when the remains of them fell in with the followers of Zuinglius and the Genevan Protestants.

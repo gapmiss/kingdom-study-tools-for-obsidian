@@ -1,0 +1,3 @@
+# Scoat
+
+**SCOAT**. \[See [[Scot]].\]

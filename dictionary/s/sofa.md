@@ -1,0 +1,3 @@
+# Sofa
+
+**SO'FA**, _noun_ \[probably an oriental word.\] An elegant long seat, usually with a stuffed bottom. Sofas are variously made. In the United States, the frame of stuffed cloth, with a covering of silk, chintz. calico or hair-cloth. The _sofa_ of the orientals is a kind of alcove raised half a foot above the floor, where visitors of distinction are received. It is also a seat by the side of the room covered with a carpet.

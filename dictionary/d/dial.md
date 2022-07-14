@@ -1,0 +1,3 @@
+# Dial
+
+**DIAL**, _noun_ An instrument for measuring time, by the aid of the sun; being a plate or plain surface, on which lines are drawn in such a manner, that the shadow of a wire, or of the upper edge of another plane, erected perpendicularly on the former, may show the true time of the day. The edge of the plane, which shows the time, is called the stile of the _dial_ and this must be parallel to the axis of the earth. The line on which this plane is erected, is called the substile; and the angle included between the substile and stile, is called the elevation or highth of the stile. A _dial_ may be horizontal, vertical, or inclining.

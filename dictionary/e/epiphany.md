@@ -1,0 +1,3 @@
+# Epiphany
+
+**EPIPH'ANY**, _noun_ \[Gr. appearance; to appear.\] A christian festival celebrated on the sixth day of January, the twelfth day after Christmas, in commemoration of the appearance of our Savior to the magians or philosophers of the East, who came to adore him with presents; or as others maintain, to commemorate the appearance of the star to the magians, or the manifestation of Christ to the Gentiles. Jerome and Chrysostom take the _epiphany_ to be the day of our Savior's baptism, when a voice from heaven declared, 'This is my beloved son, in whom I am well pleased.' The Greek fathers use the word for the appearance of christ in the world, the sense in which Paul used the word. [[2 Timothy 1#10|2 Timothy 1:10]].

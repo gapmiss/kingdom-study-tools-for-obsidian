@@ -1,0 +1,3 @@
+# Protect
+
+**PROTECT**', _verb transitive_ \[Latin protectus, protego; pro and tego; to cover; Gr. with a prefix; Eng. deck. See [[Deck]].\] To cover or shield from danger or injury; to defend; to guard; to preserve in safety; a word of general import both in a literal and figurative sense. Walls _protect_ a city or garrison; clothing is designed to _protect_ the body from cold; arms may _protect_ one from an assault; our houses _protect_ us from the inclemencies of the weather; the law protects our persons and property; the father protects his children, and the guardian his ward; a shade protects us from extreme heat; a navy protects our commerce and our shores; embassadors are protected from arrest.

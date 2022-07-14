@@ -1,0 +1,3 @@
+# Elaolite
+
+**ELA'OLITE**, _noun_ \[Gr. olive.\] A mineral, called also fettstein \[fat-stone.\] from its greasy appearance. It has a crystalline structure, more or less distinctly foliated in directions parallel to the sides of a rhombic prism, and also in the direction of the shorter diagonals of the bases. Its fracture is uneven, and sometimes imperfectly conchoidal. Some varieties are slightly chatoyant. It is fusible by the blow-pipe into a white enamel. Its colors are greenish or bluish gray, greenish blue and flesh red, and it is more or less translucent.

@@ -1,0 +1,3 @@
+# Adjective
+
+**AD'JECTIVE**, _noun_ In grammar, a word used with a noun, to express a quality of the thing named, or something attributed to it, or to limit or define it, or to specify or describe a thing, as distinct from something else. It is called also an attributive or attribute. Thus, in the phrase, a wise ruler, wise is the _adjective_ or attribute, expressing a particular property of ruler.

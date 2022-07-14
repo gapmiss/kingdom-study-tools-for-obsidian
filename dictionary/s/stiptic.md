@@ -1,0 +1,3 @@
+# Stiptic
+
+**STIPTIC**. \[See [[Styptic]].\]

@@ -1,0 +1,3 @@
+# Ringleader
+
+**RING'LEADER**, _noun_ \[ring and leader.\] The leader of any association of men engaged in violating of law or an illegal enterprise, as rioters, mutineers and the like. this name is derived from the practice which men associating to oppose law have sometimes adopted, of signing their names to articles of agreement in a ring, that no one of their number might be distinguished as the leader.

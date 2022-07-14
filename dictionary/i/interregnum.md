@@ -1,0 +1,3 @@
+# Interregnum
+
+**INTERREG'NUM**, _noun_ \[Latin inter and regnum, rule or reign.\] The time in which a throne is vacant, between the death or abdication of a king and the accession of his successor. An _interregnum_ in strictness, can happen only in governments where the king is elective; for in hereditary kingdoms, the reign of the successor commences at the moment of his predecessor; s death or demise. The word however is used with more latitude.

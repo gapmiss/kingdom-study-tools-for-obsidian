@@ -1,0 +1,3 @@
+# Halibut
+
+**HAL'IBUT**, _noun_ A fish of the genus Pleuronectes, and order of Thoracics. This fish has a compressed body, one side resembling the back, the other the belly; and both eyes on the same side of the head. It grows to a great size; some to the weight of 300 or 400 pounds. It forms an article of food, and some parts of the body are fat, tender and delicious. This fish swims on its side, and hence the name of the genus.

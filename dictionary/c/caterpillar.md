@@ -1,0 +1,3 @@
+# Caterpillar
+
+**CATERPILLAR**, _noun_ The colored and often hairy larva of the lepidopterous insects. This term is also applied to the larvas of other insects, such as the Tenthredo, or saw-fly; but is more generally confined to the lepidopters. Caterpillars are produced immediately from the egg; they are furnished with several pairs of feet, and have the shape and appearance of a worm. They contain the embryo of the perfect insect, inclosed within a muscular envelop, which is thrown off, when the insect enters the nymph or chrysalis state, in which it remains for sometime as if inanimate. It then throws off its last envelop, and emerges a perfect insect. Caterpillars generally feed on leaves or succulent vegetables, and are sometimes very destructive.

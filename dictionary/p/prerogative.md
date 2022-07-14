@@ -1,0 +1,7 @@
+# Prerogative
+
+**PREROG'ATIVE**, \[Latin proerogativa, precedence in voting; proe, before, and rogo, to ask or demand.\] An exclusive or peculiar privilege. A royal _prerogative_ is that special pre-eminence which a king has over all other persons, and out of the course of the common law, in right of his regal dignity. It consists in the possession of certain rights which the king may exercise to the exclusion of all participation of his subjects; for when a right or privilege is held in common with the subject, it ceases to be a _prerogative_ Thus the right of appointing embassadors, and of making peace and war, are, in Great Britain, royal prerogatives. The right of governing created beings is the _prerogative_ of the Creator.
+
+It is the _prerogative_ of the house of peers in Great Britain to decide legal questions in the last resort. It is the _prerogative_ of the house of commons to determine the validity of all elections of their own members. It is the _prerogative_ of a father to govern his children. It is the _prerogative_ of the understanding to judge and compare.
+
+In the United States, it is the _prerogative_ of the president, with the advice of the senate, to ratify treaties.

@@ -1,0 +1,3 @@
+# Indigo
+
+**IN'DIGO**, _noun_ \[Latin indicum, from India.\] A substance or dye, prepared from the leaves and stalks of the indigo-plant, which are steeped in water till the pulp is extracted, when the tincture is drawn off and churned or agitated, till the dye begins to granulate. The flakes are then left to settle; the liquor is drawn off, and the _indigo_ is drained in bags and dried in boxes. It is used for dyeing blue.

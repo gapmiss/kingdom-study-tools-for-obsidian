@@ -1,0 +1,3 @@
+# Tyger
+
+**TYGER**. \[See [[Tiger]].\]

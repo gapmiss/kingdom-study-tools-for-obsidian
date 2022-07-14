@@ -1,0 +1,3 @@
+# Chameleon
+
+**CHAMELEON**, _noun_ An animal of the genus Lacerta, or lizard, with a naked body, a tail and four feet. The body is six or seven inches long, and the tail five inches; with this it clings to the branches of trees. The skin is cold to the touch, and contains small grains or eminences, of a bluish gray color, in the shade, but in the light of the sun, all parts of the body become of a grayish brown, or tawny color. It is a native of Africa and Asia.

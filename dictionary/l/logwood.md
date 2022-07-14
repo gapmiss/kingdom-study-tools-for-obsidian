@@ -1,0 +1,3 @@
+# Logwood
+
+**LOG'WOOD**, _noun_ A species of tree and wood, called also Campeachy-wood, from the bay of Campeachy in Spanish America, of the genus Haematoxylon, of which there is one species only. This tree has a crooked, deformed stem, growing to the height of 20 or 24 feet, with crooked irregular branches, armed with strong thorns. The wood is of a firm texture and a red color. It is much used in dyeing.

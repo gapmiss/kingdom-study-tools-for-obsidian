@@ -1,0 +1,3 @@
+# Perversion
+
+**PERVER'SION**, _noun_ \[Latin perversus.\] The act of perverting; a turning from truth or propriety; a diverting from the true intent or object; change to something worse. We speak of the _perversion_ of the laws, when they are misinterpreted or misapplied; a _perversion_ of reason, when it is misemployed; a _perversion_ of Scripture, when it is willfully misinterpreted or misapplied, etc.

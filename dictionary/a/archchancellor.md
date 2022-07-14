@@ -1,0 +1,3 @@
+# Archchancellor
+
+**ARCHCH'ANCELLOR**, _noun_ A chief chancellor; an officer in the German empire, who presides over the secretaries of the court. Under the first races of French kings, when Germany and Italy belonged to them, three archchancellors were appointed; and this institution gave rise to the three archchancellors now subsisting in German, who are the archbishops of Mentz, of Cologne, and of Treves.

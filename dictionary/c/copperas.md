@@ -1,0 +1,3 @@
+# Copperas
+
+**COPPERAS**, _noun_ Sulphate of iron, or green vitriol; a salt of a peculiar astringent taste, and of various colors, green, gray, yellowish, or whitish, but more usually green. It is much used in dyeing black and in making ink, and in medicine, as a tonic. The _copperas_ of commerce is usually made by the decomposition of iron pyrites. The term _copperas_ was formerly synonymous with vitriol, and included the green, blue and white vitriols, or the sulphates of iron, copper and zink.

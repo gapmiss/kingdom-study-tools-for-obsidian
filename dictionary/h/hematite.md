@@ -1,0 +1,3 @@
+# Hematite
+
+**HEM'ATITE**, _noun_ \[Gr. from blood.\] The name of two ores of iron, the red _hematite_ and the brown _hematite_ They are both of a fibrous structure, and the fibers, though sometimes nearly parallel, usually diverge, or even radiate from a center. They rarely occur amorphous, but almost always in concretions, reniform, globular, botryoidal, stalactitic, etc. The red _hematite_ is a variety of the red oxyd; its streak and powder are always nearly blood red. The brown _hematite_ is a variety of the brown oxyd or hydrate of iron; its streak and powder are always of a brownish yellow. The red _hematite_ is also called blood-stone.

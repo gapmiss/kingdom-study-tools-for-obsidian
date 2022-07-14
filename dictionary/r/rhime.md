@@ -1,0 +1,3 @@
+# Rhime
+
+**RHIME**. \[See [[Rhyme]].\]

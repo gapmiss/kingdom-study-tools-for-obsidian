@@ -1,0 +1,3 @@
+# Gazel
+
+**GAZ'EL**, _noun_ An animal of Africa and India, of the genus Antilope. It partakes of the nature of the goat and the deer. Like the goat, the _gazel_ has hollow permanent horns, and it feeds on shrubs; but in size and delicacy, and in the nature and color of its hair, it resembles the roe-buck. It has cylindrical horns, most frequently annulated at the base, and bunches of hair on its fore legs. It has a most brilliant, beautiful eye.

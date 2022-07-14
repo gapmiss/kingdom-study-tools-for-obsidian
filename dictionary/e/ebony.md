@@ -1,0 +1,3 @@
+# Ebony
+
+**EB'ONY**, _noun_ \[Latin ebenus.\] A species of hard, heavy and durable wood, which admits of a fine polish or gloss; said to be brought from Madagascar. The most usual color is black, red or green. The best is a jet black, free from veins and rind, very heavy, astringent and of an acrid pungent taste. On burning coals it yields an agreeable perfume, and when green it readily takes fire from its abundance of fat. It is wrought into toys, and used for mosaic and inlaid work.

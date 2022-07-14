@@ -1,0 +1,3 @@
+# Disinherit
+
+**DISINHERIT**, _verb transitive_ \[dis and inherit.\] To cut off from hereditary right; to deprive of an inheritance; to prevent as an heir from coming into possession of any property or right, which, by law or custom, would devolve on him in the course of descent. A father sometimes disinherits his children by will. In England, the crown is descendible to the eldest son, who cannot be disinherited by the will of his father.

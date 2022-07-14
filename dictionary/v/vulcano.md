@@ -1,0 +1,3 @@
+# Vulcano
+
+**VULCANO**. \[See [[Volcano]].\]

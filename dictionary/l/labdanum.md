@@ -1,0 +1,3 @@
+# Labdanum
+
+**LABDANUM**. \[See [[Ladanum]].\]

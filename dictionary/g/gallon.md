@@ -1,0 +1,3 @@
+# Gallon
+
+**GAL'LON**, _noun_ \[Law Latin galona.\] A measure of capacity for dry or liquid things, but usually for liquids, containing four quarts. But the _gallon_ is not in all cases of uniform contents or dimensions. The _gallon_ of wine contains 231 cubic inches, or eight pounds avordupois of pure water. The _gallon_ of beer and ale contains 281 cubic inches, or ten pounds three ounces and a quarter avordupois of water; and the _gallon_ of corn, meal, etc., 272 1/4 cubic inches, or nine pounds thirteen ounces of pure water.

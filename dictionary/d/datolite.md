@@ -1,0 +1,3 @@
+# Datolite
+
+**DAT'OLITE** or **DATH'OLITE**, _noun_ The siliceous borate of lime, a mineral of two subspecies, the common and the botryoidal. The common is of a white color, of various shades, and greenish gray. It occurs in granular distinct concretions, and crystalized. The botryiodal occurs in mammillary concretions, or in botryiodal masses, white and earthy. It is named from its want of transparency.

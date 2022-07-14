@@ -1,0 +1,5 @@
+# Ostrich
+
+**OS'TRICH**, _noun_ \[Latin struthio-camelus; Gr. a sparrow, and an _ostrich_ The meaning of the name is not obvious. Eng. strut, Latin struthio, Gr., Latin avis. The primary sense of struz, struthio, etc. is to reach, stretch, extend or erect; but whether this name was given to the fowl from its stately walk or appearance, or from some part of its plumage, let the reader judge.\]
+
+A fowl now considered as constituting a distinct genus, the Struthio. This is the largest of all fowls, being four feet high from the ground to the top of the back and seven, eight, and it is said even ten to the top of the head, when standing erect. Its thighs and the sides of the body are naked, and the wings are so short as to be unfit for flying. The plumage is elegant, and much used in ornamental and showy dress. The speed of this fowl in running exceeds that of the fleetest horse.

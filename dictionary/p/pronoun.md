@@ -1,0 +1,5 @@
+# Pronoun
+
+**PRO'NOUN**, _noun_ \[Latin pronomen; pro, for, and nomen, name.\]
+
+In grammar, a word used instead of a noun or name, to prevent the repetition of it. The personal pronouns in English, are I, thou or you, he, she, we, ye and they. The last is used for the name of things, as well as for that of persons. Other words are used for the names of persons, things, sentences, phrases and for adjectives; and when they stand for sentences, phrases and adjectives, they are not strictly pronouns, but relatives, substitutes or representatives of such sentences. Thus we say, 'the jury found the prisoner guilty, and the court pronounced sentence on him. This or that gave great joy to the spectators.' In these sentences, this or that represents the whole preceding sentence, which is the proper antecedent. We also say, 'the jury pronounced the man guilty, this or that or which he could not be, for he proved an alibi.' In which sentence, this or that or which refers immediately to guilty, as its antecedent.

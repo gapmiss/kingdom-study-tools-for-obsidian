@@ -1,0 +1,3 @@
+# Lieutenantship
+
+**LIEUTENANTSHIP**. \[See [[Lieutenancy]].\]

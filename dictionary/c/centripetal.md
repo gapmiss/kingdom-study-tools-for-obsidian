@@ -1,0 +1,3 @@
+# Centripetal
+
+**CENTRIPETAL**, _adjective_ Tending towards the center. _centripetal_ force is that force which draws or impels a body towards some point as a center; as in case of a planet revolving round the sun, the center of the system. \[Note: The common accentuation of centrifugal and _centripetal_ is artificial and harsh. The accent on the first and third syllables, as in circumpolar, would be natural and easy.\]

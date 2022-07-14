@@ -1,0 +1,3 @@
+# Haguebut
+
+**HAGUEBUT**. \[See [[Arquebuse]].\]

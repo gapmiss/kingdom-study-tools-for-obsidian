@@ -1,0 +1,3 @@
+# Diptych
+
+**DIPTYCH**, _noun_ \[Gr., to fold.\] A public register of the names of consuls and other magistrates among pagans; and of bishops, martyrs and others, among Christians; so called because it sometimes two leaves folded, but is sometimes contained three or more leaves. The sacred _diptych_ was a double catalogue, in one of which were registered the names of the living, and in the other the names of the dead, which were to be rehearsed during the office.

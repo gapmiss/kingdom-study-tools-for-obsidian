@@ -1,0 +1,3 @@
+# Thane
+
+**THANE**, _noun_ The thanes in England were formerly persons of some dignity; of these there were two orders, the king's thanes, who attended the Saxon and Danish kings in their courts, and held lands immediately of them; and the ordinary thanes, who were lords of manors, and who had a particular jurisdiction within their limits. After the conquest, this title was disused, and baron took its place.

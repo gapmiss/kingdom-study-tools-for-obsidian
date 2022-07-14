@@ -1,0 +1,3 @@
+# Emery
+
+**EM'ERY**, _noun_ \[Gr. and Latin smiris.\] A mineral, said to be a compact variety of corundum, being equal to it in hardness. It is always amorphous; its structure finely granular; its color varying from a deep gray to a bluish or blackish gray, sometimes brownish. This is almost indispensable in polishing metals and hard stones. The lapidaries cut ordinary gems on their wheels, by sprinkling them with the moistened powder of emery; but it will not cut the diamond.

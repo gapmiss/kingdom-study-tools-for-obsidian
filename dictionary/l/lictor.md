@@ -1,0 +1,3 @@
+# Lictor
+
+**LIC'TOR**, _noun_ \[Latin lick, to strike.\] An officer among the Romans, who bore an ax and fasces or rods, as ensigns of his office. The duty of a _lictor_ was to attend the chief magistrates when they appeared in public, to clear the way and cause due respect to be paid to them. A dictator was attended by twenty four lictors, a consul by twelve, and a master of the horse by six. It was also the duty of lictors to apprehend and punish criminals.

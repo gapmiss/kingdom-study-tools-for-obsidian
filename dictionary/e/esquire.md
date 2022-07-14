@@ -1,0 +1,5 @@
+# Esquire
+
+**ESQUI'RE**, _noun_ \[Latin scutum, a shield; Gr. a hide, of which shields were anciently made.\], a shield-bearer or armor-bearer, scutifer; an attendant on a knight. Hence in modern times, a title of dignity next in degree below a knight. In England, this title is given to the younger sons of noblemen, to officers of the king's courts and of the household, to counselors at law, justices of the peace, while in commission, sheriffs, and other gentlemen. In the United States, the title is given to public officers of all degrees, from governors down to justices and attorneys. Indeed the title, in addressing letters, is bestowed on any person at pleasure, and contains no definite description. It is merely an expression or respect.
+
+**ESQUI'RE**, _verb transitive_ To attend; to wait on.

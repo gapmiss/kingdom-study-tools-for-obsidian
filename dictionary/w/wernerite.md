@@ -1,0 +1,3 @@
+# Wernerite
+
+**WERNERITE**, _noun_ A mineral, regarded by Werener as a subspecies of scapolite; called foliated scapolite. It is named from that distinguished mineralogist, Werner. It is found massive, and crystalized in octahedral prisms with four sided pyramidical terminations, disseminated in rocks or grayish or red feldspar. It is imperfectly lamellar, of a greenish, grayish, or olive green color, with a pearly or resinous luster. It is softer than feldspar, and melts into a white enamel.

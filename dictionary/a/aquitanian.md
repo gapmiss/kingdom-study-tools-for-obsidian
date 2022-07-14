@@ -1,0 +1,5 @@
+# Aquitanian
+
+**AQUITA'NIAN**, _adjective_ Pertaining to Aquitania, one of the great divisions of Gaul, which, according to Cesar, lay between the Garonne, the Pyrenees and the Ocean. In modern days, it has been called Gascony. The inhabitants, in Cesar's time, spoke a different dialect from that of the proper Celts, between the Garonne and Seine. This dialect bore an affinity to the Basque, in Biscay, to which they were contiguous; and some remains of it still exist in the Gascon. Aquitania is the country of the Aqui; from the name of the people, with tan, a Celtic word, signifying region or country. The Romans, either from their general usage, or from not understanding the Celtic tan, annexed another termination signifying country. Heb. ai, a settlement or habitation; Gr. land, country.
+
+A.R. stand for anno regni, the year of the king's reign; as _adjective_ R.G.R. 20, in the 20th year of the reign of king George.

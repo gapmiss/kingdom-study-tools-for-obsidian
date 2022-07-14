@@ -1,0 +1,3 @@
+# Alexandrian
+
+**ALEX'ANDRIAN**, _noun_ Pertaining to Alexandria. There are many cities of this name, in various parts of the earth. The term is often applied an attribute, or used as a noun, for one who professed or taught the sciences in the school of Alexandria in Egypt; a place highly celebrated for its literature and magnificence, and whose library, it is said, consisted of 700, 000 volumes. The Persians and Turks write for Alexander, Scander, or Sconder; and for Alexandria, Scanderona; hence Scanderoon, a sea port in Syria.

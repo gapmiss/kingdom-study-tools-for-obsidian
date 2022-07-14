@@ -1,0 +1,3 @@
+# Dropsy
+
+**DROPSY**, _noun_ \[L, Gr., water; the face. Formerly written hydropisy; whence by contraction, _dropsy_ \] In medicine, an unnatural collection of water, in an part of the body, proceeding from a greater effusion of serum by the exhalant arteries, than the absorbents take up. It occurs most frequently in persons of lax habits, or in bodies debilitated by disease. The _dropsy_ takes different names, according to the part affected; as ascites, or _dropsy_ of the abdomen; hydrocephalus, or water in the head; anasarca, or a watery swelling over the whole body; etc.

@@ -1,0 +1,5 @@
+# Mountain
+
+**MOUNT'AIN**, _noun_ \[Latin adjective, montanus.\] A large mass of earth and rock, rising above the common level of the earth or adjacent land, but of no definite altitude. We apply _mountain_ to the largest eminences on the globe; but sometimes the word is used for a large hill. In general, _mountain_ denotes an elevation higher and larger than a hill; as the Altaic mountains in Asia, the Alps in Switzerland, the Andes in South America, the Allegheny mountains in Virginia, the Catskill in New York, the White mountains in New Hampshire, and the Green mountains in Vermont. The word is applied to a single elevation, or to an extended range.
+
+**MOUNT'AIN**, _adjective_ Pertaining to a mountain; found on mountains; growing or dwelling on a mountain; as _mountain_ air; _mountain_ pines; _mountain_ goats.

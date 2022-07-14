@@ -1,0 +1,3 @@
+# Chemical
+
+**CHEMICAL**. \[See [[Chimical]].\]

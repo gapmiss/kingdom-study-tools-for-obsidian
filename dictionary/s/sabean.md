@@ -1,0 +1,3 @@
+# Sabean
+
+**SABEAN**, \[See [[Sabian]].\]

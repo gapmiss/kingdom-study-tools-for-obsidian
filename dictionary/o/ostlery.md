@@ -1,0 +1,3 @@
+# Ostlery
+
+**OSTLERY**. \[See [[Hostlery]].\]

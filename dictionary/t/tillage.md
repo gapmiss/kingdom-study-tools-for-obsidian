@@ -1,0 +1,3 @@
+# Tillage
+
+**TILL'AGE**, _noun_ The operation, practice or art of preparing land for seed, and keeping the ground free from weeds which might impede the growth of crops. _tillage_ includes manuring, plowing, harrowing and rolling land, or whatever is done to bring it to a proper state to receive the seed, and the operations of plowing, harrowing and hoeing the ground, to destroy weeds and loosen the soil after it is planted; culture; a principal branch of agriculture. _tillage_ of the earth is the principal as it was the first occupation of man, and no employment is more honorable.

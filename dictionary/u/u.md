@@ -1,0 +1,9 @@
+# U
+
+**U** is the twenty first letter and the fifth vowel in the English Alphabet. The sound seems to be nearly that of eu, shortened and blended. This sound however is not precisely that of eu or yu, except in a few words, as in unite, union, uniform; the sound does not begin with the distinct sound of e, nor end in the distinct sound of oo, unless when prolonged. It cannot be well expressed in letters. This sound is heard in the unaffected pronunciation of annuity, numerate, brute, mute, dispute, duke, true, truth, rule, prudence, opportunity, infusion.
+
+Some modern writers make a distinction between the sound of _u_ when it follows r, as in rude, truth, and its sound when it follows other letters, as in mute, duke; making the former sound equivalent to oo; rood, trooth; and the latter a diphthong equivalent to eu or yu. This is a mischievous innovation, and not authorized by any general usage either in England or the United States. The difference, very nice indeed, between the sound of _u_ in mute, and in rude, is owing entirely to the articulation which precedes that letter. For example, when a labial precedes _u_ we enter on its sound with the lips closed, and in opening them to the position required for uttering _u_ there is almost necessarily a slight sound of e formed before we arrive at the proper sound of _u_ When r precedes _u_ the mouth is open before the sound of _u_ is commenced. But in both cases, _u_ is to be considered as having the same sound.
+
+In some words, as in bull, full, pull, the sound of _u_ is that of the Italian _u_ the French ou, but shortened. This is a vowel.
+
+**U** has another short sound, as in tun, run, sun, turn, rub. This also is a vowel.

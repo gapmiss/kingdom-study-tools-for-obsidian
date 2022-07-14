@@ -1,0 +1,5 @@
+# Month
+
+**MONTH**, _noun_ \[Latin mensis; Gr. a _month_ from the moon.\] A space or period of time constituting a division of the year. _month_ originally signified the time of one revolution of the moon, a lunation, or the period from one change or conjunction of the moon with the sun to another, a period of 27 days, 7 hours, 43 minutes and 5 seconds. This is the periodical _month_ or as we generally call it, the lunar _month_ In this sense we still use the word _month_ But we also apply the term to the space of time in which the sun passes through one sign, or a twelfth part of the zodiac. This period contains 30 days, 10 hours, 29 minutes, 5 seconds, and it called a solar _month_ In the year, there are twelve solar months, and thirteen lunar months.
+
+In popular language, four weeks are called a _month_ being nearly the length of the lunar _month_ A calendar _month_ differs in some degree from a solar month; consisting of twenty eight, twenty nine, thirty or thirty one days, as the months stand in calendars or almanacs.

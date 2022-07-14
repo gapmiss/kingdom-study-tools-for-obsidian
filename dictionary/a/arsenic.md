@@ -1,0 +1,5 @@
+# Arsenic
+
+**'ARSENIC**, _noun_ \[Gr.'L. arsenicum.\]
+
+Arsenic, as it is usually seen in the shops, is not a metal, but an oxyd, from which the metal may be easily obtained by mixing it with half its weight of black flux, and introducing the mixture into a Florence flask, gradually raised to a red heat, in a sand bath. A brilliant metallic sublimate of pure _arsenic_ collects in the upper part of the flask. _arsenic_ is of a steel blue color, quite brittle, and the metal with all its compounds, is a virulent poison, vulgarly called rats-bane. It forms alloys with most of the metals. Combined with sulphur it forms orpiment or realgar, which are the yellow and red sulphurets of _arsenic_ Orpiment is the true arsenicum of the ancients. Plin. 34, 18. native orpiment appears in yellow, brilliant, and seemingly talcky masses of various sizes; realgar is red, of different shades, and often crystallized in needles. _arsenic_ is also found as a mineralizer in cobalt, antimony, copper, iron and silver ores. It is brought chiefly from the cobalt works in Saxony, where zaffer is made.

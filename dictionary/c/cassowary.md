@@ -1,0 +1,3 @@
+# Cassowary
+
+**CASSOWARY**, _noun_ A large fowl of the genus Struthio, nearly as large as the ostrich, but its legs are thicker and stronger in proportion. The wings are so small as not to appear, being hid under the feathers. The head is armed with a helmet of horny substance, consisting of plates one over another. It runs with great rapidity, outstripping the swiftest racer. It is now arranged in a separate genus, Casuarius.

@@ -1,0 +1,3 @@
+# Calif
+
+**CALIF**, _noun_ Written also caliph and kalif. A successor or vicar; a representative of Mohammed, bearing the same relation to him as the Pope pretends to bear to St. Peter. Among the Saracens, or Mohammedans, a _calif_ is one who is vested with supreme dignity and power in all matters relating to religion and civil policy. This title is borne by the Grand Signior in Turkcy, and by the Sophi of Persia.

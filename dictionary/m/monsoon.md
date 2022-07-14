@@ -1,0 +1,3 @@
+# Monsoon
+
+**MONSOON**',_noun_ A periodical wind, blowing six months from the same quarter or point of the compass, then changing and blowing the same time from the opposite quarter. The monsoons prevail in the East Indies, and are called also trade winds. But we usually give the denomination of trade winds to those which blow the whole year from the same point, as the winds within the tropics on the Atlantic.

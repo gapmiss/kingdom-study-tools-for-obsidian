@@ -1,0 +1,3 @@
+# Bos
+
+**BOS**, _noun_ \[Latin\] In zoology, the technical name of a genus of quadrupeds. The characters are, the horns are hollow within and turned outward in the form of crescents; there are eight fore teeth in the under jaw, but none in the upper; there are no dog teeth. The species are, the Taurus or common ox, the Urus, aurochs or bison of Europe, the Bison or buffalo of North America, the Bubalus or proper buffalo of the Eastern continent, the Caffer or Cape buffalo, the Grunniens or yak of Thibet, and the Moschatus or musk ox of Arctic America.

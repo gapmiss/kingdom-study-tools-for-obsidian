@@ -1,0 +1,3 @@
+# Manor
+
+**MAN'OR**, _noun_ \[Latin maneo, to abide.\] The land belonging to a lord or nobleman, or so much land as a lord or great personage formerly kept in his own hands for the use and subsistence of his family. In these days, a _manor_ rather signifies the jurisdiction and royalty incorporeal, than the land or site; for a man may have a _manor_ in gross, as the law terms it, that is, the right and interest of a court-baron, with the perquisites thereto belonging.

@@ -1,0 +1,3 @@
+# Beech
+
+**BEECH**, _noun_ \[Gr. payos; Latin fagus.\] A tree arranged by Linne under the genus fagus, with the chestnut. The _beech_ grows to a large size, with branches forming a beautiful head, with thick foliage. The bark is smooth and of a silvery cast. The mast or nuts are the food of swine, and of certain wild animals, and yield a good oil for lamps. When eaten by man, they are said to occasion giddiness and headache.

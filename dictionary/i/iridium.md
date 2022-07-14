@@ -1,0 +1,3 @@
+# Iridium
+
+**IRID'IUM**, _noun_ \[from iris.\] A metal of a whitish color, not malleable, found in the ore of platinum, and in a native allow with osmium. Its specific gravity is above 18. It takes its name from the variety of colors which it exhibits while dissolving in muriatic acid. The native allow with osmium, or native _iridium_ is of a steel gray color and shining metallic luster. It usually occurs in small irregular flat grains, in alluvial soil, in S. America.

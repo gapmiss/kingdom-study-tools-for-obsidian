@@ -1,0 +1,3 @@
+# Connection
+
+**CONNECTION**, _noun_ \[Latin See [[Connect]].\] The act of joining or state of being joined; a state of being knit or fastened together; union by junction, by an intervening substance or medium, by dependence or relation, or by order in a series; a word of very general import. There is a _connection_ of links in a chain; a _connection_ between all parts of the human body; a _connection_ between virtue and happiness, and between this life and the future; a _connection_ between parent and child, master and servant, husband and wife; between motives and actions, and between actions and their consequences. In short, the word is applicable to almost every thing that has a dependence on or relation to another thing.

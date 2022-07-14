@@ -1,0 +1,3 @@
+# Meritorious
+
+**MERITO'RIOUS**, _adjective_ Deserving of reward or of notice, regard, fame or happiness, or of that which shall be a suitable return for services or excellence of any kind. We applaud the _meritorious_ services of the laborer, the soldier and the seaman. We admire the _meritorious_ labors of a Watts, a Doddridge, a Carey and a Martyn. We rely for salvation on the _meritorious_ obedience and sufferings of Christ.

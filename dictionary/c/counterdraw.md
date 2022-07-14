@@ -1,0 +1,3 @@
+# Counterdraw
+
+**COUNTERDRAW**, _verb transitive_ \[counter and draw.\] In painting, to copy a design or painting, by means of a fine linen cloth, an oiled paper, or other transparent matter, whereon the strokes appearing through, they are traced with a pencil. The same is done on glass, and with frames or nets divided into squares with silk or thread, or by means of instruments, as the parallelogram.

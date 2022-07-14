@@ -1,0 +1,3 @@
+# Garish
+
+**GARISH**. \[See [[Gairish]].\]

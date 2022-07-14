@@ -1,0 +1,3 @@
+# Keelhaul
+
+**KEE'LHAUL**, _verb transitive_ To haul under the keel of a ship. Keelhauling is a punishment inflicted in the Dutch navy for certain offenses. The offender is suspended by a rope from one yard arm, with weights on his legs, and a rope fastened to him, leading under the ship's bottom to the opposite yard arm, and being let fall into the water, he is drawn under the ship's bottom and raised on the other side.

@@ -1,0 +1,3 @@
+# Is
+
+**IS**, _verb intransitive_ iz. \[Latin est.\] The third person singular of the substantive verb, which _is_ composed of three or four distinct roots, which appear in the words am, be, are, and _is_ _is_ and was coincide with the Latin esse, and Goth.wesan. In the indicative, present tense, it _is_ thus varied; I am, thou art, he, she, or it, is; we, ye or you, they, are. In writing and speaking, the vowel _is_ often dropped; as, he's gone; there's none left.

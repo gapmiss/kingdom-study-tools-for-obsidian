@@ -1,0 +1,3 @@
+# Juniper
+
+**JU'NIPER**, _noun_ \[Latin juniperus.\] A tree or shrub bearing berries of a bluish color, of a warm, pungent, sweet taste, yielding when fresh, by expression, a rich, sweet, aromatic juice. They are useful carminatives and stomachics. The wood of the tree is of a reddish color, hard and durable, and is used in cabinet work and veneering. The oil of _juniper_ mixed with that of nuts makes an excellent varnish; and the resin powdered is used under the name of pounce.

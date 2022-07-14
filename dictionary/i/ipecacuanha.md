@@ -1,0 +1,3 @@
+# Ipecacuanha
+
+**IPECACUAN'HA**, _noun_ A root produced in South America. Four sorts are mentioned, gray, brown, white, and yellow. The gray, or genuine kind, is referred by Mutis to the Psychotria emetica, but more recently by Brotero to the Callicocca _ipecacuanha_ a plant growing in Brazil. These plants have been considered by some as the same, or as species of the same genus. This root is used as an emetic. _ipecacuanha_ is a little wrinkled root about the thickness of a moderate quill, much used as an emetic, and against diarrheas and dysenteries.

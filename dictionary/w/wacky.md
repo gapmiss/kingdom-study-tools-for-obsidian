@@ -1,0 +1,3 @@
+# Wacky
+
+**WACKY**,_noun_ A rock nearly allied to basalt, of which it may be regarded as a more soft and earthy variety. Its color is a greenish gray, brown or black. It is opake, yields easily to the knife, and has a greasy feel. Its principal ingredient is silex. Gray _wacky_ is a different species of rock, being a kind of sandstone. _wacky_ is a mineral sunstance intermediate between clay and basalt.

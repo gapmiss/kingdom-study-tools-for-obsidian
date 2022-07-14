@@ -1,0 +1,3 @@
+# Unconstitutional
+
+**UNCONSTITU'TIONAL**, _adjective_ Not agreeable to the constitution; not authorized by the constitution; contrary to the principles of the constitution. It is not _unconstitutional_ for the king of Great Britain to declare war without the consent of parliament; but for the president of the United States to declare war, without an act of congress authorizing it, would be _unconstitutional_

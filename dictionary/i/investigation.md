@@ -1,0 +1,3 @@
+# Investigation
+
+**INVESTIGA'TION**, _noun_ \[Latin investigatio.\] The action or process of searching minutely for truth, facts or principles; a careful inquiry to find out what is unknown, either in the physical or moral world, and either by observation and experiment, or by argument and discussion. Thus we speak of the investigations of the philosopher and the mathematician; the investigations of the judge, the moralist and the divine.

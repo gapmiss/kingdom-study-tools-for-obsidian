@@ -1,0 +1,3 @@
+# Shaster
+
+**SHAS'TER**, _noun_ Among the Hindoos, a sacred book containing the dogmas of the religion of the Bramis and the ceremonies of their worship, and serving as a commentary on the Vedam. It consists of three parts; the first containing the moral law of the Hindoos; the second the rites and ceremonies of their religion; the third the distribution of the people into tribes or classes, with the duties pertaining to each.

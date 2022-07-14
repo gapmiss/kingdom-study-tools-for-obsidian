@@ -1,0 +1,3 @@
+# Novator
+
+**NOVATOR**. \[See [[Innovator]].\]

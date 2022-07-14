@@ -1,0 +1,3 @@
+# Heptarchy
+
+**HEP'TARCHY**, _noun_ \[Gr. seven and rule.\] A government by seven persons, or the country governed by seven persons. But the word is usually applied to England, when under the government of seven kings, or divided into seven kingdoms; as the Saxon _heptarchy_ which comprehended the whole of England, when subject to seven independent princes. These petty kingdoms were those of Kent, the South Saxons \[Sussex, \] West Saxons, East Saxons \[Essex, \] the East Angles, Mercia, and Northumberland.

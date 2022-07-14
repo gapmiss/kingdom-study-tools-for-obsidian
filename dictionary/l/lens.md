@@ -1,0 +1,3 @@
+# Lens
+
+**LENS**, _noun_ _plural_ lenses. \[Latin _lens_ a lentil.\] A transparent substance, usually glass, so formed that rays of light passing through it are made to change their direction, and to magnify or diminish objects at a certain distance. Lenses are double-convex, or convex on both sides; double-concave, or concave on both sides; plano-convex, or plano-concave, that is, with one side plane, and the other convex or concave; or convex on one side and concave on the other; the latter is called a meniscus.

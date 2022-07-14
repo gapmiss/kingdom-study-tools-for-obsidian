@@ -1,0 +1,3 @@
+# Madrepore
+
+**MAD'REPORE**, _noun_ A submarine substance of a stony hardness, resembling coral. It consists of carbonate of lime with some animal matter. It is of a white color, wrinkled on the surface, and full of cavities or cells, inhabited by a small animal. From a liquor discharged by this animal, the substance is said to be formed. Madrepores constitute a genus of polypiers, of variable forms, always garnished with radiated plates.

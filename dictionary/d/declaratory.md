@@ -1,0 +1,3 @@
+# Declaratory
+
+**DECLAR'ATORY**, _adjective_ Making declaration, clear manifestation, or exhibition; expressive; as, this clause is _declaratory_ of the will of the legislature. The _declaratory_ part of a law, is that which sets forth and defines what is right and what is wrong. A _declaratory_ act, is an act or statute which sets forth more clearly and explains the intention of the legislature in a former act.

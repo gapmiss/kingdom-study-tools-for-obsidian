@@ -1,0 +1,3 @@
+# Cross-stone
+
+**CROSS-STONE**, _noun_ A mineral called also harmotome, and staurolite. It is almost always in crystals. Its single crystals are rectangular four-sided prisms, broad or compressed, and terminated by four-sided pyramids, with rhombic faces, which stand on the lateral edges. But this mineral is generally found in double crystals, composed of two of the preceding crystals, so intersecting each other, that the broader planes of one prism are perpendicular to the broader planes of the other, throughout their whole length. Its color is a grayish white or milk white, sometimes with a shade of yellow or red.

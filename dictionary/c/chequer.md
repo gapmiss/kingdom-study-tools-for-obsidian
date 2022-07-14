@@ -1,0 +1,3 @@
+# Chequer
+
+**CHEQUER**. \[See [[Checker]].\]

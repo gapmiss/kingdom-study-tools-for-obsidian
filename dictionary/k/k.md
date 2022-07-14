@@ -1,0 +1,7 @@
+# K
+
+**K**, the eleventh letter of the English Alphabet, is borrowed from the Greeks, being the same character as the Greek kappa, answering to the oriental kaph. It represents a close articulation, formed by pressing the root of the tongue against the upper part of the mouth, with a depression of the lower jaw and opening of the teeth. It is usually denominated a guttural, but is more properly a palatal. Before all the vowels, it has one invariable sound, corresponding with that of c, before a, o, and u, as in keel, ken. In monosyllables, it is used after c, as in crack, check, deck, being necessary to exhibit a correct pronunciation in the derivatives, cracked, checked, decked, cracking, for without it, c, before the vowels e and i, would be sounded like s.
+
+Formerly, _k_ was added to c, in certain words of Latin origin, as in musick, publick, republick. But in modern practice, _k_ is very properly omitted, being entirely superfluous, and the more properly, as it is never written in the derivatives, musical, publication, republican. It is retained in traffick, as in monosyllables, on account of the pronunciation of the derivatives, trafficked, trafficking.
+
+**K** is silent before n, as in know, knife, knee. As a numeral, _k_ stands for 250; and with a stroke over it, for 250, 000. This character was not used by the ancient Romans, and rarely in the later ages of their empire. In the place of _k_ they used c, as in clino, for Greek. In the Teutonic dialects, this Greek letter is sometimes represented by h. \[See [[H]].\]

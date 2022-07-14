@@ -1,0 +1,3 @@
+# Secularization
+
+**SECULARIZA'TION**, _noun_. \[foom _secularize_.\] the act of converting a regular person, place or benefice into a secular one. Most cathedral churchses were formerly regular, that is, the canons were of religious or monastic orders; but they have since been secularized. for the _secularization_ of a regular church, there is wanted the authority of the pope, that of the prince, the bishop of the place, the patron, and even the consent of the people.

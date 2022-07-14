@@ -1,0 +1,3 @@
+# Similar
+
+**SIM'ILAR**, _adjective_ \[Latin similis; Gr. omaloV.\] Like; resembling; having a like form or appearance. _similar_ may signify exactly alike, or having a general likeness, a likeness in the principal points. Things perfectly _similar_ in their nature, must be of the same essence, or homogeneous; but we generally understand _similar_ to denote a likeness that is not perfect. Many of the statutes of Connecticut are _similar_ to the statutes of Massachusetts on the same subjects. The manners of the several states of New England are _similar_ the people being derived from common ancestors.

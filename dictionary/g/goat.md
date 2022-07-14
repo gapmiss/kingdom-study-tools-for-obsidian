@@ -1,0 +1,3 @@
+# Goat
+
+**GOAT**, _noun_ An animal or quadruped of the genus Capra. The horns are hollow, turned upwards, erect and scabrous. Goats are nearly of the size of sheep, but stronger, less timid and more agile. They delight to frequent rocks and mountains, and subsist on scanty coarse food. The milk of the _goat_ is sweet, nourishing and medicinal, and the flesh furnishes provisions to the inhabitants of countries where they abound.

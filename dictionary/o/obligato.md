@@ -1,0 +1,3 @@
+# Obligato
+
+**OBLIGATO**. \[See [[Obbligato]].\]

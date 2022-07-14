@@ -1,0 +1,3 @@
+# Monopolizer
+
+**MONOP'OLIZER**, _noun_ One that monopolizes; a person who engrosses a commodity by purchasing the whole of that article in market for the purpose of selling it at an advanced price; or one who has a license or privilege granted by authority, for the sole buying or selling of any commodity. The man who retains in his hands his own produce or manufacture, is not a monopolist within the meaning of the laws for preventing monopolies.

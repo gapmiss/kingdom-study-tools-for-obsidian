@@ -1,0 +1,7 @@
+# C
+
+**C**, the third letter in the English alphabet, and the second articulation or consonant, is a palatal, nearly corresponding in sound with the Greek x, kappa, and with the Hebrew, caph. It bears a middle place in pronunciation, between the aspirate, and the palatal. It is a Roman character, borrowed from the Gr.x, or from the oriental, which was used in languages written from right to left, and when inverted and the corners rounded, becomes _c_ In the old Etruscan, it was written with the corners rounded, but not inverted; in Arcadian, _c_ as now written. That its sound in Latin was the same, or nearly the same, as that of kappa, may be known from the fact, that the Greeks, while the Latin was a living language, wrote kappa for the Roman _c_ Perhaps the same character may be the basis of the Arabic.
+
+As an abbreviature, _c_ stands for Caius, Carolus, Caesar, condemno, etc., and CC for consulibus. As a numeral _c_ stands for 100; CC for 200; etc. In music, _c_ after the cliff, is the mark of common time.
+
+In English, _c_ has two sounds, or rather it represents two very different articulations of the organs; one close, like K, which occurs before a, o and u; the other, a sibilant, precisely like s, which occurs before E, I and Y. The former is distinguished in this vocabulary by _c_ which may be called ke. In Russ. _c_ is precisely the English s, as it was in the old Greek alphabet.

@@ -1,0 +1,9 @@
+# Notwithstanding
+
+**NOTWITHSTAND'ING**, the participle of withstand, with not prefixed, and signifying not opposing; nevertheless. It retains in all cases its participial signification. For example, 'I will surely rend the knigdom from thee, and will give it to thy servant; _notwithstanding_ in thy days I will not do it, for david thy father's sake.' [[1 Kings 11#12|1 Kings 11:12]]. In this passage there is an ellipsis of that, after _notwithstanding_ That refers to the former part of the sentence, I will rend the kingdom from thee; _notwithstanding_ that (declaration or determination, ) in thy days I will not do it. in this and in all cases, _notwithstanding_ either with or without that or this, constitutes the case absolute or independent.
+
+'It is a rainy day, but _notwithstanding_ that, the troops must be reviewed; ' that is, the rainy day not opposing or preventing. That, in this case, is a substitute for the whole first clause of the sentence. It is to that clause what a relative is to an antecedent noun, and which may be used in the place of it; _notwithstanding_ which, that is, the rainy day.
+
+'Christ enjoined on his followers not to publish the cures he wrought; but _notwithstanding_ his injunctions, they proclaimed them.' Here, _notwithstanding_ his injunctions, is the case independent or absolute; the injunctions of Christ not opposing or preventing.
+
+This word answers precisely to the latin non obstante, and both are used with nouns or with substitutes for nouns, for sentences or for clauses of sentences. So in the Latin phrase, hoc non obstante, hoc may refer to a single word, to a sentence or to a series of sentences.

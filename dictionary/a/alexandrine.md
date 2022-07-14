@@ -1,0 +1,3 @@
+# Alexandrine
+
+**ALEX'ANDRINE**, or ALEXANDRIAN, _noun_ A kind of verse, consisting of twelve syllables, or of twelve and thirteen alternately; so called from a poem written in French on the life of Alexander. This species of verse is peculiar to modern poetry, but well adapted to epic poems. The _alexandrine_ in English consists of twelve syllables, and is less used than this kind of verse is among the French, whose tragedies are generally composed of Alexandrines.

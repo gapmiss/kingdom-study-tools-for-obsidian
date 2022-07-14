@@ -1,0 +1,3 @@
+# Skonce
+
+**SKONCE**, \[See [[Sconce]].\]

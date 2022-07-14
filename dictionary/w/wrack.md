@@ -1,0 +1,3 @@
+# Wrack
+
+**WRACK**, WRECK, _noun_ \[See [[Wreck]].\] A name given to a marine plant which is of great utility as a manure. It is called sometimes sea-wrack or sea-wreck, and sea-oak and sea-tangle. It is the Fucus vesiculosus of Linne, a plant found on rocks left dry at low water. The stalk runs along the middle of the leaf, and is terminated by watery bladders. The grass _wrack_ is of the genus Zostera. _wrack_ and to _wrack_ \[See [[Wreck]].\]

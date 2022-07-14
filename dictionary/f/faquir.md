@@ -1,0 +1,3 @@
+# Faquir
+
+**FAQUIR**, \[See [[Fakir]].\]

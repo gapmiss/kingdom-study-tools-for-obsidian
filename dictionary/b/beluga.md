@@ -1,0 +1,3 @@
+# Beluga
+
+**BELU'GA**, _noun_ A fish of the cetaceous order, and genus Delphinus, from 12 to 18 feet in length. The tail is divided into two lobes, lying horizontally, and there is no dorsal fin. In swimming, this fish bends its tail under its body like a lobster, and thrusts itself along with the rapidity of an arrow. This fish is found in the arctic seas and rivers, and is caught for its oil and its skin.

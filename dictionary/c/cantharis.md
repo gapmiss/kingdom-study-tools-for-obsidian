@@ -1,0 +1,3 @@
+# Cantharis
+
+**CANTHARIS** or _plural_ **CANTHARIDES**, _noun_ Spanish flies; a species of Meloe. This fly is nine or ten lines in length, of a shining green color, mixed with azure, and has a nauseous smell. It feeds upon the leaves of trees and shrubs, preferring the ash. These flies, when bruised, are universally used as a vesicatory, or blistering plaster. The largest come from Italy, but the best from Spain.

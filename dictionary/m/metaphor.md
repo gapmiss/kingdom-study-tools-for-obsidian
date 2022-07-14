@@ -1,0 +1,3 @@
+# Metaphor
+
+**MET'APHOR**, _noun_ \[Gr. to transfer, over, to carry.\] A short similitude; a similitude reduced to a single word; or a word expressing similitude without the signs of comparison. Thus 'that man is a fox, ' is a metaphor; but 'that man is like a fox, ' is a similitude or comparison. So when I say, 'the soldiers fought like lions, ' I use a similitude. In _metaphor_ the similitude is contained in the name; a man is a fox, means, a man is as crafty as a fox. So we say, a man bridles his anger, that is, restrains it as a bridle restrains a horse. Beauty awakens love or tender passions; opposition fires courage.

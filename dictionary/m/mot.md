@@ -1,0 +1,3 @@
+# Mot
+
+**MOT**. \[See [[Motto]].\]

@@ -1,0 +1,3 @@
+# Monopoly
+
+**MONOP'OLY**, _noun_ \[Latin monopolium.\] The sole power of vending any species of goods, obtained either by engrossing the articles in market by purchase, or by a license from the government confirming this privilege. Thus the East India Company in Great Britain has a _monopoly_ of the trade to the East Indies, granted to them by charter. Monopolies by individuals obtained by engrossing, are an offense prohibited by law. But a man has by natural right the exclusive power of vending his own produce or manufactures, and to retain that exclusive right is not a _monopoly_ within the meaning of law.

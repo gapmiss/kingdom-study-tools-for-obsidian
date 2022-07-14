@@ -1,0 +1,3 @@
+# Outrigger
+
+**OUT'RIGGER**, _noun_ In seamen's language, a strong beam fixed on the side of a ship and projecting from it, in order to secure the masts in the operation of careening, by counteracting the strain it suffers from the effort of the careening tackle; also, a boom occasionally used in the tops to thrust out the breast back-stays to windward, to increase the angle of tension, and give additional security to the topmast. \[See [[Prow]].\]

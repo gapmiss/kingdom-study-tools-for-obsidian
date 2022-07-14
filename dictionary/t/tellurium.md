@@ -1,0 +1,3 @@
+# Tellurium
+
+**TELLU'RIUM**, _noun_ A metal recently discovered by Klaproth, combined with gold and silver in the ores, and received from the bannat of Temeswar. The ores are denominated native, graphic, yellow, and black. The native _tellurium_ is of a color between tin and silver, and sometimes inclines to a steel gray. The graphic _tellurium_ is stell gray; but sometimes white, yellow or lead gray. These ores are found massive or crystallized.

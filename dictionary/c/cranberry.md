@@ -1,0 +1,3 @@
+# Cranberry
+
+**CRANBERRY**, _noun_ \[crane and berry.\] A species of Vaccinium; a berry that grows on a slender, bending stalk. Its botanical name is oxycoccus, \[sour berry, \] and it is also called moss-berry, or moor-berry, as it grows only on peat-bogs or swampy land. The berry when ripe is red, and of the size of a small cherry or of the hawthorn berry. These berries form a sauce of exquisite flavor, and are used for tarts. The _cranberry_ of the United States is a distinct species, the V. Macrocarpon. \[The common pronunciation, cramberry, is erroneous.\]

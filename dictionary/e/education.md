@@ -1,0 +1,3 @@
+# Education
+
+**EDUCA'TION**, _noun_ \[Latin educatio.\] The bringing up, as of a child, instruction; formation of manners. _education_ comprehends all that series of instruction and discipline which is intended to enlighten the understanding, correct the temper, and form the manners and habits of youth, and fit them for usefulness in their future stations. To give children a good _education_ in manners, arts and science, is important; to give them a religious _education_ is indispensable; and an immense responsibility rests on parents and guardians who neglect these duties.

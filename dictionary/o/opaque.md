@@ -1,0 +1,3 @@
+# Opaque
+
+**OPAQUE**. \[See [[Opake]].\]

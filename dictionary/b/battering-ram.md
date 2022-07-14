@@ -1,0 +1,3 @@
+# Battering-ram
+
+**BAT'TERING-RAM**, _noun_ In antiquity, a military engine used to beat down the walls of besieged places. It was a large beam, with a head of iron somewhat resembling the head of a ram, whence its name. It was suspended by ropes in the middle to a beam which was supported by posts, and balanced so as to swing backwards and forwards, and was impelled by men against the wall. It was sometimes mounted on wheels.

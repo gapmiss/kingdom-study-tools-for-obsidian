@@ -1,0 +1,3 @@
+# Thermometer
+
+**THERMOM'ETER**, _noun_ \[Gr. warm, from heat, and measure.\] An instrument for measuring heat; founded on the property which heat possesses of expanding all bodies, the rate or quantity of expansion being supposed proportional to the degree of heat applied, and hence indicating that degree. The _thermometer_ indicates only the sensible heat of bodies, and gives us no information respecting the quantity of latent heat, or of combined heat, which those bodies may contain.

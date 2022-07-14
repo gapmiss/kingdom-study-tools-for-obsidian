@@ -1,0 +1,3 @@
+# Astrology
+
+**ASTROL'OGY**, _noun_ \[Supra.\] A science which teaches to judge of the effects and influences of the stars, and to foretell future events, by their situation and different aspects. This science was formerly in great request, as men ignorantly supposed the heavenly bodies to have a ruling influence over the physical and moral world; but it is now universally exploded by true science and philosophy.

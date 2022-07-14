@@ -1,0 +1,3 @@
+# Gregorian
+
+**GREGO'RIAN**, _adjective_ Denoting what belongs to Gregory. The _gregorian_ calendar, is one which shows the new and full moon, with the time of Easter, and the movable feasts depending thereon, by means of epacts. The _gregorian_ year, is the present year, as reformed by pope Gregory XIII, in 1582; consisting of 365 days, 5 hours, 48 minutes, 47 seconds, with an additional day every fourth year.

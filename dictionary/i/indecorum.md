@@ -1,0 +1,3 @@
+# Indecorum
+
+**INDECO'RUM**, _noun_ \[Latin in and decorum.\] Impropriety of behavior; that in behavior or manners which violates the established rules of civility, or the duties of respect which age or station requires; an unbecoming action. It is sometimes synonymous with indecency; but indecency, more frequently than _indecorum_ is applied to words or actions which refer to what nature and propriety require to be concealed or suppressed.

@@ -1,0 +1,3 @@
+# Stipule
+
+**STIPULE**. \[See [[Stipula]].\]

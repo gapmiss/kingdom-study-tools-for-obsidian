@@ -1,0 +1,3 @@
+# Ides
+
+**IDES**, _noun_ _plural_ \[Latin idus.\] In the ancient Roman calendar, eight days in each month; the first day of which fell on the 13th of January, February, April, June, August, September, November and December, and on the 15th of March, May, July, and October. The _ides_ came between the calends and the nones, and were reckoned backwards. This method of reckoning is still retained in the chancery of Rome, and in the calendar of the breviary.

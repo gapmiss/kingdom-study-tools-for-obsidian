@@ -1,0 +1,3 @@
+# Equator
+
+**EQUA'TOR**, _noun_ \[Latin from oequo, to make equal.\] In astronomy and geography, a great circle of the sphere, equally distant from the two poles of the world, or having the same poles as the world. It is called _equator_ because when the sun is in it, the days and nights are of equal length; hence it is called also the equinoctial, and when drawn on maps, globes and planispheres, it is called the equinoctial line, or simply the line. Every point in the _equator_ is 90 degrees or a quadrant's distance from the poles; hence it divides the globe or sphere into two equal hemispheres, the northern and southern. At the meridian, the _equator_ rises as much above the horizon as is the complement of the latitude of the place.

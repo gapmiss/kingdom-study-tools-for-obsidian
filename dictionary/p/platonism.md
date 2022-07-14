@@ -1,0 +1,3 @@
+# Platonism
+
+**PLA'TONISM**, _noun_ The philosophy of Plato, consisting of three branches, theology, physics and mathematics. Under theology is included moral philosophy. The foundation of Plato's theology is the opinion that there are two eternal, primary, independent and incorruptible principles or causes of all things, and matter, from which all things are made. It was a fundamental maxim with him that from nothing, nothing can proceed. While therefore he held God to be the maker of the universe, he held matter, the substance of which the universe was made, to be eternal.

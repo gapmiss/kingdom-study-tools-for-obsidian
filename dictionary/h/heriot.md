@@ -1,0 +1,3 @@
+# Heriot
+
+**HER'IOT**, _noun_ In English law, a tribute or fine payable to the lord of the fee on the decease of the owner, landholder, or vassal. Originally this tribute consisted of military furniture, or of horses and arms, as appears by the laws of Canute, C.69. But as defined by modern writers, a _heriot_ is a customary tribute of goods and chattels, payable to the lord of the fee on the decease of the owner of the land; or a render of the best beast or other movables to the lord on the death of the tenant. Heriots were of two sorts; _heriot_ service, which was due by reservation in a grant or lease of lands; and _heriot_ custom, which depended solely on immemorial usage.

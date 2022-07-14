@@ -1,0 +1,3 @@
+# Supernatural
+
+**SUPERNAT'URAL**, _adjective_ \[super and natural.\] Being beyond or exceeding the powers or laws of nature; miraculous. A _supernatural_ event is one which is not produced according to the ordinary or established laws of natural things. Thus if iron has more specific gravity than water, it will sink in that fluid; and the floating of iron on water must be a _supernatural_ event. Now no human being can alter a law of nature; the floating of iron on water therefore must be caused by divine power specially exerted to suspend, in this instance, a law of nature. Hence _supernatural_ events or miracles can be produced only by the immediate agency of divine power.

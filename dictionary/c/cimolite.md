@@ -1,0 +1,3 @@
+# Cimolite
+
+**CIMOLITE**, _noun_ A species of clay, used by the ancients, as a remedy for erysipelas and other inflammations. It is white, or a loose, soft texture, molders into a fine powder, and effervesces with acids. It is useful in taking spots from cloth. Another species, of a purple color, is the steatite or soap-rock. From another species, found in the isle of Wight, tobacco pipes are made.

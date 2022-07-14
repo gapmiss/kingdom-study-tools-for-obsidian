@@ -1,0 +1,3 @@
+# Pedometer
+
+**PEDOM'ETER**, _noun_ \[Latin pes, the foot, and Gr.measure.\] An instrument by which paces are numbered as a person walks, and the distance from place to place ascertained. It also marks the revolutions of wheels. This is done by means of wheels with teeth and a chain or string fastened to the foot or to the wheel of a carriage; the wheels advancing a notch at every step or at every revolution of the carriage wheel.

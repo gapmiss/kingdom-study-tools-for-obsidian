@@ -1,0 +1,3 @@
+# Elk
+
+**ELK**, _noun_ \[Latin alce, alces.\] A quadruped of the Cervine genus, with palmated horns, and a fleshy protuberance on the throat. The neck is short, with a short, thick, upright mane; the eyes are small; the ears long, broad and slouching; and the upper lip hangs over the under lip. It is the largest of the deer kind, being seventeen hands high and weighing twelve hundred pounds. It is found in the northern regions of Europe, Asia and America. In the latter country it is usually called Moose, from the Indian name musu.

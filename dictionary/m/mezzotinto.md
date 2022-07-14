@@ -1,0 +1,3 @@
+# Mezzotinto
+
+**MEZZOTINT'O**, _noun_ \[Latin tinctus, painted.\] A particular manner of engraving or representation of figures on copper, in imitation of painting in Indian ink. To perform this the plate is scratched and furrowed in different directions; the design is then drawn on the face, then the dents and furrows are erased from the parts where the lights of the piece are to be; the parts which are to represent shades being left.

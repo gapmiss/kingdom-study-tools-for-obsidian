@@ -1,0 +1,3 @@
+# Boundary
+
+**BOUND'ARY**, _noun_ A limit; a bound. This word is thus used as synonymous with bound. But the real sense is, a visible mark designating a limit. Bound is the limit itself or furthest point of extension, and may be an imaginary line; but _boundary_ is the thing which ascertains the limit; terminus, not finis. Thus by a statute of Connecticut, it is enacted that the inhabitants of every town shall procure its bounds to be set out by such marks and boundaries as may be a plain direction for the future; which marks and boundaries shall be a great heap of stones or a ditch of six feet long, etc. This distinction is observed also in the statute of Massachusetts. But the two words are, in ordinary use, confounded.

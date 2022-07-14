@@ -1,0 +1,3 @@
+# Endemial
+
+**ENDE'MIAL**, _adjective_ \[Gr. people.\] Peculiar to a people or nation. An endemic disease, is one to which the inhabitants of a particular country are peculiarly subject, and which, for that reason, may be supposed to proceed from local causes, as bad air or water. The epithet is also applied to a disease which prevails in a particular season, chiefly or wholly in a particular place.

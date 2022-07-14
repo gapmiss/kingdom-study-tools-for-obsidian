@@ -1,0 +1,3 @@
+# Cima
+
+**CIMA**, \[See [[Cyma]].\]

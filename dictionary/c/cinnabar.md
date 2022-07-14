@@ -1,0 +1,3 @@
+# Cinnabar
+
+**CINNABAR**, _noun_ Red sulphuret of mercury. Native _cinnabar_ is an ore of quicksilver, moderately compact, very heavy, and of an elegant striated red color. It is called native vermilion, and its chief use is in painting. The intensity of its color is reduced by bruising and dividing it into small parts. It is found amorphous, or under some imitative form, or crystalized. Factitious _cinnabar_ is a mixture of mercury and sulphur sublimed, and thus reduced into a fine red glebe.

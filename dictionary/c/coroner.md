@@ -1,0 +1,5 @@
+# Coroner
+
+**CORONER**, _noun_ \[Law Lat., a crown.\] An officer whose office is concerned principally with pleas of the crown. One chief part of his duty is, when a person is slain or dies suddenly or in prison, to inquire into the manner of his death. This must be done by a jury, on sight of the body, and at the place where the death happened. In England, the _coroner_ is to inquire also concerning shipwrecks, and certify whether wrecks or not, and who is in possession of the goods; also concerning treasure-trove. As a ministerial officer, the _coroner_ is the sheriffs substitute; and when an exception can be taken to the sheriff, for suspicion of partiality, process is awarded to the _coroner_
+
+In some of the States, in America, there is a _coroner_ but his principal or only duty is to inquire into the causes of untimely death. In Connecticut there is no such officer, the duty being performed by a constable or justice of the peace.

@@ -1,0 +1,3 @@
+# Eel
+
+**EEL**, _noun_ A species of Muraena, a genus of fishes belonging to the order of apodes. The head is smooth; there are ten rays in the membrane of the gills; the eyes are covered with a common skin; the body is cylindrical and slimy. Eels, in some respects, resemble reptiles, particularly in their manner of moving by a serpentine winding of the body; and they often creep upon land and wander about at night in search of snails or other food. In winter, they lie buried in mud, being very impatient of cold. They grow to the weight of 15 or 20 pounds; and the conger _eel_ is said to grow to a hundred pounds in weight, and to 10 feet in length. They are esteemed good food.

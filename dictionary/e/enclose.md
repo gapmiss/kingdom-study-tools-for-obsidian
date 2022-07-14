@@ -1,0 +1,3 @@
+# Enclose
+
+**ENCLOSE**. \[See [[Inclose]].\]

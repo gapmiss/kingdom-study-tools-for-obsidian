@@ -1,0 +1,3 @@
+# Georama
+
+**GE'ORAMA**, _noun_ \[Gr. the earth, and view.\] An instrument or machine which exhibits a very complete view of the earth, lately invented in Paris. It is a hollow sphere of forty feet diameter, formed by thirty six bars of iron representing the parallels and meridians, and covered with a bluish cloth, intended to represent seas and lakes. The land, mountains and rivers are painted on paper and pasted on this cover.

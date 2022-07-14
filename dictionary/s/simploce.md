@@ -1,0 +1,3 @@
+# Simploce
+
+**SIMPLOCE**, \[See [[Symploce]].\]

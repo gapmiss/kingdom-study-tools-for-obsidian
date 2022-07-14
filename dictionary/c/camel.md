@@ -1,0 +1,7 @@
+# Camel
+
+**CAMEL**, _noun_
+
+**1.** A large quadruped used in Asia and Africa for carrying burdens, and for riders. As genus, the _camel_ belongs to the order of Pecora. The characteristics are; it has no horns; it has six fore teeth in the under jaw; the canine teeth are wide set, three in the upper and two in the lower jaw; and there is a fissure in the upper lip. The dromedary of Arabian _camel_ has one bunch on the back, four callous protuberances on the fore legs and two on the hind legs. The Bactrian _camel_ has two bunches on the back. The Llama of South America is a smaller animal, with a smooth back, small head, fine black eyes, and very long neck. The Pacos or sheep of Chili his no bunch. Camels constitute the riches of an Arabian, without which he could neither subsist, carry on trade nor travel over sandy desarts. Their milk is his common food. By the camels power of sustaining abstinence rom drink, for many days, and of subsisting on a few coarse shrubs, he is peculiarly fitted for the parched and barren lands of Asia and Africa.
+
+**2.** In Holland, _camel_ \[or Kameel, as Coxe writes it, \] is a machine for lifting ships, and bearing them over the Pampus, at the mouth of the river Y, or over other bars. It is also used in other places, and particularly at the dock in Petersburg, to bear vessels over a bar to Cronstadt.

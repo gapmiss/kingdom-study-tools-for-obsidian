@@ -1,0 +1,5 @@
+# Bean
+
+**BEAN**, _noun_ A name given to several kinds of pulse, or leguminous seeds, and the plants producing them. They belong to several genera, particularly Vicia, Phaseolus and Dolichos. The varieties most usually cultivated are, the horse _bean_ the mazagan, the kidney _bean_ the cranberry _bean_ the lima _bean_ the frost _bean_ etc. The stalk is erect or climbing, and the fruit generally roundish, oval or flat, and of various colors.
+
+Malacca-beans. Anacardia, the fruit of a tree growing in Malabar, and other parts of the Indies. This fruit is of a shining black color, of the shape of a heart flattened, about an inch long, terminating at one end in an obtuse point, and at the other, adhering to a wrinkles stalk. In contains, within two shells, a kernel of a sweetish taste; and betwixt the shells is lodged a thick acrid juice.

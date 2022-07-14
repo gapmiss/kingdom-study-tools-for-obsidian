@@ -1,0 +1,3 @@
+# Steelyard
+
+**STEELYARD**, _noun_ \[steel and yard.\] The Roman balance; an instrument for weighing bodies, consisting of a rod or bar marked with notches, designating the number of pounds and ounces, and a weight which is movable along this bar, and which is made to balance the weight of the body by being removed at a proper distance from the fulcrum. The principle of the _steelyard_ is that of the lever; where an equilibrium is produced, when the products of the weights on opposite sides into their respective distances from the fulcrum, are equal to one another. Hence a less weight is made to indicate a greater, by being removed to a greater distance from the fulcrum.

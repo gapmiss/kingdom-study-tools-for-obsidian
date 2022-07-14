@@ -1,0 +1,3 @@
+# Feodatory
+
+**FEODATORY**. \[See [[Feudatory]].\]

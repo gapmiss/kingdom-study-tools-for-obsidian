@@ -1,0 +1,3 @@
+# Substraction
+
+**SUBSTRAC'TION**, _noun_ In law, the withdrawing or withholding of some right. Thus the _substraction_ of conjugal rights, is when either the husband or wife withdraws from the other and lives separate. The _substraction_ of a legacy, is the withholding or detaining of it from the legatee by the executor. In like manner, the withholding of any service, rent, duty or custom, is a _substraction_ for which the law gives a remedy.

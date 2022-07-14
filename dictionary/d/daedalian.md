@@ -1,0 +1,3 @@
+# Daedalian
+
+**DAEDALIAN**, \[See [[Dedalian]]\]

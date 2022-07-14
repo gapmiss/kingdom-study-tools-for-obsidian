@@ -1,0 +1,3 @@
+# Hussar
+
+**HUS'SAR**, _noun_ s as z. A mounted soldier of horseman, in German cavalry. The hussars are the national cavalry of Hungary and Croatia. Their regimentals are a fur cap adorned with a feather, a doublet, a pair of breeches to which the stockings are fastened, and a pair of red or yellow boots. Their arms are a saber, a carbine and pistols. Hussars now form a part of the French and English cavalry.

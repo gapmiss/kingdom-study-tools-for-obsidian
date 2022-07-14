@@ -1,0 +1,3 @@
+# Camelopard
+
+**CAMELOPARD**, _noun_ \[camelus and pardalis.\] The giraff, a species constituting the genus Camelopardalis. This animal has two straight horns, without branches, six inches long, covered with hair, truncated at the end and tufted. On the forehead, is a tubercle, two inches high, resembling another horn. The fore legs are not much longer than the hind ones, but the shoulders are of such a vast length, as to render the fore part of the animal much higher than the hind part. The head is like that of a stag; the neck is slender and elegant, furnished with a short mane. The color of the whole animal is a dirty white marked with large broad rusty spots. This animal is found in the central and eastern parts of Africa. It is timid and not fleet.

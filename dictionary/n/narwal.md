@@ -1,0 +1,3 @@
+# Narwal
+
+**NARWAL**, _noun_ The Monodon monoceros, a cetaceous animal found in the northern seas, which grows to twenty feet in length. The spiracle of this animal is on the anterior part of the skull. When young it has two teeth or horns, but when old it has but one, which projects from the upper jaw and is spiral. From this circumstance of its having one horn only, it has obtained the name of the sea unicorn, or unicorn fish.

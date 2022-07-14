@@ -1,0 +1,3 @@
+# Indice
+
+**INDICE**. \[See [[Index]].\]

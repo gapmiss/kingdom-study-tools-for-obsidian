@@ -1,0 +1,3 @@
+# Install
+
+**INSTALL**', _verb transitive_ \[Gr. to send.\] To set, place or instate, in an office, rank or order; to invest with any charge, office or rank, with the customary ceremonies. To _install_ a clergyman or minister of the gospel, is to place one who has been previously ordained, over a particular church and congregation, or to invest an ordained minister with a particular pastoral charge; in England, to induct a dean, prebendary or other ecclesiastical dignitary into possession of the church to which he belongs.

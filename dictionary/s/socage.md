@@ -1,0 +1,3 @@
+# Socage
+
+**SOC'AGE**, _noun_ \[from soc, supra, a privilege.\] In English law, a tenure of lands and tenements by a certain or determinate service; a tenure distinct from chivalry or knight's service, in which the render was uncertain. The service must be certain, in order to be denominated socage; as to hold by fealty and twenty shillings rent. _socage_ is of two kinds; free _socage_ where the services are not only certain, but honorable, and villein _socage_ where the services, though certain, are of a baser nature.

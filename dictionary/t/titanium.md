@@ -1,0 +1,3 @@
+# Titanium
+
+**TITA'NIUM**, _noun_ In mineralogy, a metal of modern discovery, and of a dark copper color, first found in Cornwall in England. It occurs in different states of oxydation or intermixture, in various parts of the world. It exists in three different states of oxydation; the first is blue or purple, the second red, and the third white. The ores of this metal are called menachanite, from Menachan in Cornwall, where it was originally found; iserine; from the river Iser, in Silesia; nigrine, from its black color; sphene, rutile, and octahedrite.

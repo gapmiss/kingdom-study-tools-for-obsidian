@@ -1,0 +1,3 @@
+# Disobey
+
+**DISOBEY**, _verb transitive_ \[dis and obey.\] To neglect or refuse to obey; to omit or refuse to do what is commanded, or to do what is forbid; to transgress or violate an order or injunction. Refractory children _disobey_ their parents; men _disobey_ their maker and the laws; and we all _disobey_ the precepts of the gospel. \[The word is applicable both to the command and to the person commanding.\]

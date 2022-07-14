@@ -1,0 +1,3 @@
+# Escout
+
+**ESCOUT**. \[See [[Scout]].\]

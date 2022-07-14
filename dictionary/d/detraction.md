@@ -1,0 +1,3 @@
+# Detraction
+
+**DETRACTION**, _noun_ \[Latin\] The act of taking something from the reputation or worth of another, with the view to lessen him in estimation; censure; a lessening of worth; the act of depreciating another, from envy or malice. _detraction_ may consist in representing merit, as less than it really is; or in the imputation of faults, vices or crimes, which impair reputation; and if such imputation is false, it is slander or defamation.

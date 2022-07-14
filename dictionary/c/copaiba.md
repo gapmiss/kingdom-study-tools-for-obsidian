@@ -1,0 +1,3 @@
+# Copaiba
+
+**COPAIBA**, _noun_ Balsam of _copaiba_ or capivi, is a liquid resinous juice, flowing from incisions made in the stem of a tree called Copaifera officinalis, growing in Spanish America, in the province of Antiochia. This juice is clear, transparent, of a whitish or pale yellowish color, an agreeable smell, and a bitterish pungent taste. It is of the consistence of oil, or a little thicker. As a medicine, it is corroborating and detergent.

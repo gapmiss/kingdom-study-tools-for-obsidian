@@ -1,0 +1,5 @@
+# Opponent
+
+**OPPO'NENT**, _adjective_ \[Latin opponens, oppono; ob and pono, to set, put or lay, that is, to thrust against; Heb. to build, that is, to set, to found, Latin fundo.\] That opposes; opposite; adverse.
+
+**OPPO'NENT**, _noun_ One that opposes; particularly, one that opposes in controversy, disputation or argument. It is sometimes applied to the person that begins a dispute by raising objections to a tenet or doctrine, and is correlative to defendant or respondent. In common usage, however, it is applicable to either party in a controversy, denoting any person who opposes another or his cause. _opponent_ may sometimes be used for adversary, and for antagonist, but not with strict propriety, as the word does not necessarily imply enmity nor bodily strife. Nor is it well used in the sense of rival or competitor.

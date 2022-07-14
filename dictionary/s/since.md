@@ -1,0 +1,9 @@
+# Since
+
+**SINCE**, prep or _adverb_
+
+**1.** After; from the time that. The proper signification of _since_ is after, and its appropriate sense includes the whole period between an event and the present time. I have not seen my brother _since_ January. The Lord hath blessed thee, _since_ my coming. [[Genesis 30#30|Genesis 30:30]]. Holy prophets, who have been _since_ the world began. Luke Latin [[John 9#32|John 9:32]]. _since_ then denotes, during the whole time after an event; or at any particular time during that period.
+
+**2.** Ago; past; before this. 'About two years _since_ an event happened, ' that is, two years having passed.
+
+**3.** Because that; this being the fact that. _since_ truth and constancy are vain, _since_ neither love nor sese of pain nor force of reason can persuade, then let example be obey'd. _since_ when it precedes a noun, is called a preposition, but when it precedes sentence it is called an adverb. The truth is, the character of the word is the same in both cases. It is probably an obsolete participle, and according to the usual classification of words, may be properly ranked with the prepositions. In strictness, the last clause of the passage above cited is the case absolute. 'The Lord hath blessed the, _since_ my coming, ' that is, my arrival being past. So, _since_ the world began, is strictly past the world began, the beginning of the world being past. In the first case, _since_ considered as a preposition, has coming, a noun, for its object, and in the latter case, the clause of a sentence. So we say, against your arrival, or against you come.

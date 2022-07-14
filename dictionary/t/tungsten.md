@@ -1,0 +1,3 @@
+# Tungsten
+
+**TUNG'STEN**, _noun_ In mineralogy, a mineral of a yellowish or grayish white color, of a lamellar structure, and infusible by the blowpipe. It occurs massive or crystallized, usually in octahedral crystals. This is an ore. The same name is given to the metal obtained from this ore. This metal is procured in small panes as fine as sand, of a strong metallic luster, an iron gray color, and slightly agglutinated. It is one of the hardest of the metals, and very brittle.

@@ -1,0 +1,3 @@
+# Gondola
+
+**GON'DOLA**, _noun_ A flat-bottomed boat, very long and narrow, used at Venice in Italy on the canals. A _gondola_ of middle size is about thirty feet long and four broad, terminating at each end in a sharp point or peak rising to the highth of a man. It is usually rowed by two men, called gondoliers, who propel the boat by pushing the oars. The _gondola_ is also used in other parts of Italy for a passage boat.

@@ -1,0 +1,3 @@
+# Coscinomancy
+
+**COSCINOMANCY**, _noun_ \[Gr., a sieve, and divination.\] The art or practice of divination, by suspending a sieve and taking it between two fingers, or by fixing it to the point of a pair of shears, then repeating a formula of words, and the names of persons suspected. If the sieve trembles, shakes or turns, when any name is repeated, the person is deemed guilty. This divination is mentioned by Theocritus, and is said to be still practiced in some parts of England. The practice and the name are strangers in America.

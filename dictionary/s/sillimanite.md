@@ -1,0 +1,3 @@
+# Sillimanite
+
+**SIL'LIMANITE**, _noun_ A mineral found at Saybrook in Connecticut, so named in honor of Prof, Silliman of Yale College. It occurs in long, slender, rhombic prisms, engaged in gneiss. Its color is dark gray and hair brown; luster shining upon the external planes, but brilliant and pseudometallic upon those produced by cleavage in a direction parallel with the longer diagonal of the prism. Hardness about the same with quartz. Specific gravity, 3.410.

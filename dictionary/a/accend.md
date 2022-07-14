@@ -1,0 +1,3 @@
+# Accend
+
+**ACCEND**', _verb transitive_ \[Latin accendo, to kindle; ad and candeo, caneo, to be white, canus, white; W. can, white, bright; also a song. Whence, canto, to sing, to chant; cantus, a song; Eng. cant; W. canu, to bleach or whiten, and to sing; cymnud, fuel. Hence, kindle, Latin candidus, candid, white. The primary sense is, to throw, dart, or thrust; to shoot, as the rays of light. Hence, to cant, to throw. See [[Chant and Cant]].\] To kindle; to set on fire. \[The verb is not used.\]

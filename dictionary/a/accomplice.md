@@ -1,0 +1,3 @@
+# Accomplice
+
+**ACCOM'PLICE**, _noun_ \[Latin complicatus, folded together, of con, with, and plico, to fold. See [[Complex and Pledge]].\] An associate in a crime; a partner or partaker in guilt. It was formerly used in a good sense for a co-operator, but this sense is wholly obsolete. It is followed by with before a person; as A was an _accomplice_ with B in the murder of C. Dryden uses it with to before a thing.

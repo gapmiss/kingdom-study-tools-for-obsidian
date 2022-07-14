@@ -1,0 +1,3 @@
+# Schorl
+
+**SCHORL**. \[See [[Shorl]].\]

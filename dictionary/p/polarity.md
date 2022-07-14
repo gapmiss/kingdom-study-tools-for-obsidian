@@ -1,0 +1,3 @@
+# Polarity
+
+**POLAR'ITY**, _noun_ That quality of a body in virtue of which peculiar properties reside in certain points; usually, as in electrified or magnetized bodies, properties of attraction or repulsion, or the power of taking a certain direction. Thus we speak of the _polarity_ of the magnet or magnetic needle, whose pole is not always that of the earth, but a point somewhat easterly or westerly; and the deviation of the needle from a north and south line is called its variation. A mineral is said to possess _polarity_ when it attracts one pole of a magnetic needle and repels the other.

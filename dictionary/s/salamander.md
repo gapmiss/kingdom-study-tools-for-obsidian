@@ -1,0 +1,5 @@
+# Salamander
+
+**SAL'AMANDER**, _noun_ \[Latin Gr. salamandra.\] An animal of the genus Lacerta or Lizard, one of the smaller species of the genus, not being more than six or seven inches in length. It has a short cylindrical tail, four toes on the four feet, and a naked body. The skin is furnished with small excrescences like teats, which are full of holes from which oozes a milky liquor that spreads over the skin, forming a kind of transparent varnish. The eyes are placed in the upper part of the head. The color is dark, with a bluish cast on the belly, intermixed with irregular yellow spots. This animal is oviparous, inhabits cold damp places among trees or hedges, avoiding the heat of the sun. The vulgar story of its being able to endure fire, is a mistake.
+
+Salamander's hair or wool, a name given to a species of asbestos or mineral flax; I believe no long used.

@@ -1,0 +1,3 @@
+# Sibyl
+
+**SIB'YL**, _noun_ \[from the Latin \] In _pagan antiquity_, the Sibyls were certain said to be endowed with a prophetic spirit. Their number is variously stated; but the opinion of Varro, who states them to have been ten, is generally adopted. They resided in various parts of Persia, Greece and Italy. It is pretended that they wrote certain prophecies on leaves in verse, which are called Sibylline verses, or Sibylline oracles.

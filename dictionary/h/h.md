@@ -1,0 +1,7 @@
+# H
+
+**H**, is the eighth letter of the English Alphabet. It is properly the representative of the Chaldee, Syriac and Hebrew, which is the eighth letter in those alphabets. Its form is the same as the Greek _h_ eta. It is not strictly a vowel, nor an articulation; but the mark of a stronger breathing, than that which precedes the utterance of any other letter. It is pronounced with an expiration of breath, which, preceding a vowel, is perceptible by the ear at a considerable distance. Thus, harm and arm, hear and ear, heat and eat, are distinguished at almost any distance at which the voice can be heard. _h_ is a letter sui generis, but as useful in forming and distinguishing words as any other.
+
+In our mother tongue, the Anglo-Saxon, and other Teutonic dialects, _h_ sometimes represents the Latin c, and the Gr.x; as in horn, Latin cornu, Gr. to hide; G. haut, Sw. hud, D. huid, Dan.hud, Latin cutis; Sax. hlinian, Latin clino, Gr. to lean; Latin celo, to conceal, Sax. helan. G. hehlen, Dan. haeler. In Latin _h_ sometimes represents the Greek x; as in halo, Gr. hio. In the modern European languages, it represents other guttural letters.
+
+In English, _h_ is sometimes mute, as in honor, honest; also when united with g, as in right, fight, brought. In which, what, who, whom, and some other words in which it follows w, it is pronounced before it, hwich, hwat, etc. As a numeral in Latin, _h_ denotes 200, and with a dash over it 200, 000. As an abbreviation in Latin, _h_ stands for homo, haeres, hora, etc.

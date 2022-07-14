@@ -1,0 +1,3 @@
+# Entrap
+
+**ENTRAP**', _verb transitive_ To catch as in a trap; to insnare; used chiefly or wholly in a figurative sense. To catch by artifices; to involve in difficulties or distresses; to entangle; to catch or involve in contradictions; in short, to involve in any difficulties from which an escape is not easy or possible. We are entrapped by the devices of evil men. We are sometimes entrapped in our own words.

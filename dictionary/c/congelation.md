@@ -1,0 +1,3 @@
+# Congelation
+
+**CONGELATION**, _noun_ \[Latin\] The process of passing, or the act of converting, from a fluid to a solid state; or the state of being congealed; concretion. It differ from crystalization in this; in _congelation_ the whole substance of a fluid may become solid; in crystalization, when a salt is formed, a portion of liquid is left. But the _congelation_ of water is a real crystalization.

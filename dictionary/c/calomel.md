@@ -1,0 +1,3 @@
+# Calomel
+
+**CALOMEL**, _noun_ A preparation of mercury, much used in medicine. It is called the submuriate or protochloride of mercury, and is prepared in various ways, by sublimation or precipitation, and also in the dry way. The following are the directions given in the last London Pharmacopoeia. Take of muriated quicksilver one pound, and of purified quicksilver, nine ounces; rub them together till the globules disappear; then sublime, and repeat the sublimation twice more successively.

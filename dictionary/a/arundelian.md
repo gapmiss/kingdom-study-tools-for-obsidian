@@ -1,0 +1,3 @@
+# Arundelian
+
+**ARUNDE'LIAN**, _adjective_ Pertaining to Arundel, as _arundelian_ marbles. The _arundelian_ marbles are ancient stones, containing a chronological detail of the principal events of Greece, from Cecrops, who lived about 1582 years before Christ, to the archonship of Diognetus, before Christ 264. The engraving was done in Paros, and the chronology is called the Parian Chronicle. These stones are called _arundelian_ from the Earl of Arundel, who employed William Petty to procure relics of antiquity in the East in 1624. These, with other curiosities, were purchased, and by the Earl's grandson presented to the University of Oxford. Their antiquity and even their authenticity has been questioned.

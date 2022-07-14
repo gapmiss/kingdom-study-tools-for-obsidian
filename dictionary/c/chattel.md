@@ -1,0 +1,3 @@
+# Chattel
+
+**CHATTEL**, _noun_ chatl. \[See [[Cattle]].\] Primarily, any article of movable goods. In modern usage, the word chattels comprehends all goods, movable or immovable, except such as have the nature of freehold. Chattels are real or personal. Chattels real, are such as concern or savor of the realty, as a term for years of land, ward-ships in chivalry, the next presentation to a church, estates by statute merchant, elegit and the like. Chattels personal, are things movable, as animals, furniture of a house, jewels, corn, etc.

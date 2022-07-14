@@ -1,0 +1,3 @@
+# Beatification
+
+**BEATIFICA'TION**, _noun_ In the Romish church, an act of the Pope by which he declares a person beatifies or blessed after death. This is the first step towards canonization, or the raising of one to the dignity of a saint. No person can be beatified till 50 years after his death. All certificates or attestations of his virtues and miracles are examined by the congregation of rites, and this examination continues often for years; after which his Holiness decrees the _beatification_ and the corpse and relics of the intended saint are exposed to the veneration of all good christians.

@@ -1,0 +1,3 @@
+# Whale
+
+**WHALE**, _noun_ \[G., to stir, agitate or rove.\] The general name of an order of animals inhabiting the ocean, arranged in zoology under the name of Cete or Cetacea, and belonging to the class Mammalia in the Linnean system. The common _whale_ is of the genus Balaena. It is the largest animal of which we have any account, and probably the largest in the world. It is sometimes ninety feet in length in the northern seas, and in the torrid zone much larger. The _whale_ furnishes us with oil, whalebone, etc. \[See [[Cachalot]].\]

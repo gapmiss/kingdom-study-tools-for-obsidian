@@ -1,0 +1,3 @@
+# Gourmand
+
+**GOURMAND**. \[See [[Gormand]].\]

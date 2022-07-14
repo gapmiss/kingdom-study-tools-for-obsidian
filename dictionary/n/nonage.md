@@ -1,0 +1,3 @@
+# Nonage
+
+**NONAGE**, _noun_ \[non, not, and age\] Minority; the time of life before a person, according to the laws of his country, becomes of age to manage his own concerns. Legal maturity of age is different in different countries. In this country, as in Great Britain, a mans _nonage_ continues till he has completed twenty one years. _nonage_ is sometimes the period under 14 years of age, as in case of marriage.

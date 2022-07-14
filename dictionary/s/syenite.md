@@ -1,0 +1,3 @@
+# Syenite
+
+**SYENITE**. \[See [[Sienite]].\]

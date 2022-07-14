@@ -1,0 +1,3 @@
+# Morse
+
+**MORSE**, _noun_ mors. In zoology, the sea-horse, or walrus, an animal of the genus Trichechus, which sometimes grows to the length of 18 feet. This animal has a round head, small mouth and eyes, thick lips, a short neck, and a body thick in the middle and tapering towards the tail. His skin is wrinkled, with short hairs thinly dispersed. His legs are short and loosely articulated, and he has five toes on each foot connected by webs. Teeth of this animal have been found which weighed thirty pounds. These animals are gregarious, but shy and very fierce when attacked. They inhabit the shores of Spitzbergen, Hudson's bay and other places in high northern latitudes.

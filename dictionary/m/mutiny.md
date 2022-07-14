@@ -1,0 +1,7 @@
+# Mutiny
+
+**MU'TINY**, _noun_ \[Latin muto, to change.\] An insurrection of soldiers or seamen against the authority of their commanders; open resistance of officers or opposition to their authority. A _mutiny_ is properly the act of numbers, but by statutes and orders for governing the army and navy in different countries, the acts which constitute _mutiny_ are multiplied and defined; and acts of individuals, amounting to a resistance of the authority or lawful commands of officers, are declared to be _mutiny_ Any attempt to excite opposition to lawful authority, or any act of contempt towards officers, or disobedience of commands, is by the British _mutiny_ act declared to be _mutiny_ Any concealment of mutinous acts, or neglect to attempt a suppression of them, is declared also to be _mutiny_
+
+\[Note-In good authors who lived a century ago, _mutiny_ and mutinous were applied to insurrection and sedition in civil society. But I believe these words are now applied exclusively to soldiers and seamen.\]
+
+**MU'TINY**, _verb intransitive_ To rise against lawful authority in military and naval service; to excite or attempt to excite opposition to the lawful commands of military and naval officers; to commit some act which tends to bring the authority of officers into contempt, or in any way to promote insubordination.

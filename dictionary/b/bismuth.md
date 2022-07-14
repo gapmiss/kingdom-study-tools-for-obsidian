@@ -1,0 +1,3 @@
+# Bismuth
+
+**BIS'MUTH**, _noun_ s as z. A metal of a yellowish or reddish white color, and a lamellar texture. It is somewhat harder than lead, and scarcely, of at all, malleable, being so brittle as to break easily under the hammer, and it is reducible to powder. Its internal face or fractrue exhibits large shining plates, variously disposed. It melts at 476 degrees Fahr. and may be fused in the flame of a candle. It is often found in a native state, crystallized in rhombs or octahedrons, or in the form of dendrites, or thin lamens investing the ores of other metals, particularly cobalt.

@@ -1,0 +1,3 @@
+# Stirrup
+
+**STIRRUP**, _noun_ sturup. \[G., step-bow or mounting-bow. The first stirrups appear to have been ropes.\] A kind of ring or bending piece of metal, horizontal on one side for receiving the foot of the rider, and attached to a strap which is fastened to the saddle; used to assist persons in mounting a horse, and to enable them to sit steadily in riding, as well as to relieve them by supporting a part of the weight of the body.

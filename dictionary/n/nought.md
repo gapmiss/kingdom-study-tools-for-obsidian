@@ -1,0 +1,3 @@
+# Nought
+
+**NOUGHT**. See [[Naught]].

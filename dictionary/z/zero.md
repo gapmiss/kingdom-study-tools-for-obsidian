@@ -1,0 +1,3 @@
+# Zero
+
+**ZERO**, _noun_ Cipher; nothing. The point of a thermometer from which it is graduated. _zero_ in the thermometers of Celsius and Reaumur, is at the point at which water congeals. The _zero_ of Fahrenheits thermometer is fixed at the point at which the mercury stands when immersed in a mixture of snow and common salt. In Wedgewoods pyrometer, the _zero_ corresponds with 1077 degrees on Fahrenheits scale.

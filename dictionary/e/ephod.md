@@ -1,0 +1,3 @@
+# Ephod
+
+**EPH'OD**, _noun_ \[Heb. to bind.\] In Jewish antiquity, a part of the sacerdotal habit, being a kind of girdle, which was brought from behind the neck over the two shoulders, and hanging down before, was put across the stomach, then carried round the waist and used as a girdle to the tunic. There were two sorts; one of plain linen, the other embroidered for the high priest. On the part in front were two precious stones, on which were engraved the names of the twelve tribes of Israel. Before the breast was a square piece or breastplate.

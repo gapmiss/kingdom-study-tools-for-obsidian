@@ -1,0 +1,3 @@
+# Chance-medley
+
+**CHANCE-MEDLEY**, _noun_ In law, the killing of a person by chance, when the killer is doing a lawful act; for if he is doing an unlawful act, it is felony. As if a man, when throwing bricks from a house into a street where people are continually passing, after giving warning to passengers to take care, should kill a person, this is _chance-medley_ But if he gives no warning, and kills a man, it is manslaughter.

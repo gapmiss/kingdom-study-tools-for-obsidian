@@ -1,0 +1,3 @@
+# Wabble
+
+**WABBLE**, _verb intransitive_ To move from one side to the other; to vacillate; as a turning or whirling body. So it is said a top wabbles, when it is in motion, and deviates from a perpendicular direction; a spindle wabbles, when it moves one way and the other. \[This word is applied chiefly to bodies when turning with a circular motion, and its place canot be supplied by any other word in the language. It is neither low nor barbarous.\]

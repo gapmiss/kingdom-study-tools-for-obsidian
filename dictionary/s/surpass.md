@@ -1,0 +1,3 @@
+# Surpass
+
+**SURP'ASS**, _verb transitive_ To exceed; to excel; to go beyond in any thing good or bad. Homer surpasses modern poets in sublimity. Pope surpasses most other poets in smoothness of versification. Achilles surpassed the other Greeks in strength and courage. Clodius surpassed all men in the profligacy of his life. Perhaps no man ever surpassed Washington in genuine patriotism and integrity of life.

@@ -1,0 +1,3 @@
+# Emplunge
+
+**EMPLUNGE**, \[See [[Plunge]].\]

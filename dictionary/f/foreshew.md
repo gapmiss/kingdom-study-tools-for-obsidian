@@ -1,0 +1,3 @@
+# Foreshew
+
+**FORESHEW**. \[See [[foreshow]].\]

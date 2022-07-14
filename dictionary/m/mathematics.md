@@ -1,0 +1,3 @@
+# Mathematics
+
+**MATHEMAT'ICS**, _noun_ \[Latin mathematica, from Gr. to learn.\] The science of quantity; the science which treats of magnitude and number, or of whatever can be measured or numbered. This science is divided into pure or speculative, which considers quantity abstractly, without relation to matter; and mixed, which treats of magnitude as subsisting in material bodies, and is consequently interwoven with physical considerations. It is the peculiar excellence of _mathematics_ that its principles are demonstrable. Arithmetic, geometry, algebra, trigonometry, and conic sections, are branches of _mathematics_

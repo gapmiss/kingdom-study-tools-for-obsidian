@@ -1,0 +1,3 @@
+# Yenite
+
+**YENITE**, _noun_ A mineral found in the isle of Elba, and in other places, of a brown or brownish black color. It is arranged with the chrysolite family, but differs much from other species of it. It resembles hornblend, or rather black epidote. It occurs both crystalized and massive; the form of the crystals being that of a rhomboidal prism. It consists chiefly of silex, lime, and oxyd of manganese. This mineral is called _yenite_ or jenite in commemoration of the battle of Jena, and lievrite, from its discoverer.

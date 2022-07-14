@@ -1,0 +1,3 @@
+# Baboon
+
+**BABOON**', _noun_ A monkey of the largest species; a quadruped belonging to the genus Simia, in the class Mammalia, and order Primates, according to the system of Linne; but by Pennant arranged under the digitated quadrupeds. Baboons have short tails; a long face; a broad high muzzle; dog-like tusks, or canine teeth; and naked callosities on the buttocks. They are found only on the eastern continent.

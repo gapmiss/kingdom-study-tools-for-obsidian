@@ -1,0 +1,3 @@
+# Condensation
+
+**CONDENSATION**, _adjective_ \[Latin See [[Condense]].\] The act of making more dense or compact; or the act of causing the parts that compose a body to approach or unite more closely, either by mechanical pressure, or by a natural process; the state of being condensed. Dew and clouds are supposed to be formed by the _condensation_ of vapor. It is opposed to rarefaction and expansion. _condensation_ is applicable to any compressible matter; and from _condensation_ proceeds increased hardness, solidity, and weight.

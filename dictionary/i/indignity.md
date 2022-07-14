@@ -1,0 +1,3 @@
+# Indignity
+
+**INDIG'NITY**, _noun_ \[Latin indignitas.\] Unmerited, contemptuous conduct towards another; any action towards another which manifests contempt for him; contumely; incivility or injury, accompanied with insult. Contemptuous words respecting one, or foul language in the presence of persons of character and delicacy, and indecent behavior, are indignities. Christ on the cross was treated with the foulest _indignity_

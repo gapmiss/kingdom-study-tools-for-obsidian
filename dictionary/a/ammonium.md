@@ -1,0 +1,3 @@
+# Ammonium
+
+**AMMO'NIUM**, _noun_ A name given to the supposed metallic basis of ammonia. If mercury, at the negative pole of a galvanic battery, is placed in contact with a solution of ammonia, and the circuit is completed, an amalgam is formed, which, at the temperature of 70 degrees or 80 degrees of Fahrenheit, is of the consistence of butter, but at the freezing point is a firm and crystallized mass. This amalgam is supposed to be formed by the metallic basis, _ammonium_

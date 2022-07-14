@@ -1,0 +1,3 @@
+# Anhima
+
+**AN'HIMA**, _noun_ A Brazilian aquatic fowl, larger than a swan, somewhat like a crane. Its head is small, its bill black, the toes armed with long claws. But what is remarkable, is a horn growing from its forehead; and the second joint of the wing is armed with two straight triangular spurs, an inch in length. The fidelity between the male and female is so great, that when one dies, the other remains by the carcass, till it expires.

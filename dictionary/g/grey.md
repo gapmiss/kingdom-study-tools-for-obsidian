@@ -1,0 +1,3 @@
+# Grey
+
+**GREY**. \[See [[Gray]].\]

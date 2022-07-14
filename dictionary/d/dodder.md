@@ -1,0 +1,3 @@
+# Dodder
+
+**DODDER**, _noun_ \[G.\] A plant of the genus Cuscuta, one species of which is called hell-weed. It is almost destitute of leaves, parasitical, creeping and fixing itself to some other plant, as to hops, flax and particularly to the nettle. It decays at the root, and is nourished by the plant that supports it, by means of little vesicles or papillae, which attach themselves to the stalk.

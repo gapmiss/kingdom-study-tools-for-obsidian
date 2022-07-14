@@ -1,0 +1,3 @@
+# Zabaism
+
+**ZABAISM**. \[See [[Sabianism]].\]

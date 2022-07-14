@@ -1,0 +1,3 @@
+# Woad
+
+**WOAD**, _noun_ \[G.\] A plant of the genus Isatis, cultivated for the use of dyers. The _woad_ blue is a very deep blue, and is the base of many other colors or shades of color. _woad_ is first bruised in a mill, and then made into balls. It grows wild in France and along the coasts of the Baltic. The term _woad_ is applied to the Reseda, weld or wold, and to the Genista tinctoria or dyers broom.

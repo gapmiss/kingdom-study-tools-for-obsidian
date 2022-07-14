@@ -1,0 +1,3 @@
+# Calamine
+
+**CALAMINE**, or CALAMIN, _noun_ Lapis calaminaris, or cadmia fossilis; an ore of zink, much used in the composition of brass. This term is applied both to the siliceous oxyd and the native carbonate of zink. They an scarcely be distinguished by their external characters. They are generally compact, often stalactitic, and sometimes crystalized. Most of the calamines of England and Scotland are said to be carbonates.

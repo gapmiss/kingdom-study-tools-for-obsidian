@@ -1,0 +1,5 @@
+# Chess
+
+**CHESS**, _noun_ An ingenious game performed by two parties with different pieces, on a checkered board, that is, a board divided into sixty four squares or houses. The success of the game depends almost entirely on skill. Each gamester has eight dignified pieces, called a king, a queen, two bishops, two knights, and two rooks or castles; also eight pawns. The pieces of the parties are of different colors.
+
+**CHESS**, _noun_ In New England, that weed which grows among wheat, and is supposed to be wheat degenerated or changed, as it abounds most in fields where the wheat is winter-killed. It bears some resemblance to oats. This fact is mentioned by Pliny, Nat. Hist. Lib. 18. Ca 17. Primum omnium frumenti vitium avena est: et hordeum in eam degenerat. This change of wheat and barley into oats, he ascribes to a moist soil, wet weather, bad seed, etc. This opinion coincides with observations in America, as wheat is most liable to perish in moist land, and often in such places, almost all the wheat is killed, and instead of it _chess_ often appears.

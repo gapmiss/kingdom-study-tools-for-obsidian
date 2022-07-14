@@ -1,0 +1,7 @@
+# Signal
+
+**SIG'NAL**, _noun_ \[Latin signum.\] A sign that gives or is intended to give notice; or the notice given. Signals are used to communicate notice, information, orders and the like, to persons at a distance, and by any persons and for the purpose. A _signal_ may be a motion of the hand, the raising of a flag, the firing of a gun, or any thing which, being understood by persons at a distance, may communicate notice.
+
+Signals are particularly useful in the navigation of fleets and in naval engagements. There are day-signals, which are usually made by the sails, by flags and pendants, or guns; night-signals, which are lanterns disposed in certain figures, or false fires, rockets, or the firing of guns; fog-signals, which are made by sounds, as firing of guns, beating of drums, ringing of bells, etc. There are signals of evolution, addressed to a whole fleet, to a division or to a squadron; signals of movements to particular ships; and signals of service, general or particular. Signals used in an army are mostly made by a particular beat of the drum, or by the bugle.
+
+**SIG'NAL**, _adjective_ Eminent; remarkable; memorable; distinguished from what is ordinary; as a _signal_ exploit; a _signal_ service; a _signal_ ace of benevolence. It is generally but not always used in a good sense.

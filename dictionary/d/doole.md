@@ -1,0 +1,3 @@
+# Doole
+
+**DOOLE**, \[See [[Dole]].\]

@@ -1,0 +1,3 @@
+# Cogenial
+
+**COGENIAL**, for congenial.

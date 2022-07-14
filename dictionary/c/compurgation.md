@@ -1,0 +1,3 @@
+# Compurgation
+
+**COMPURGATION**, _noun_ \[Latin , To purify.\] In law, the act or practice of instifying a man by the oath of others who swear to their belief of his veracity; wager of law, in which a man who has given security to make his law, brings into court eleven of his neighbors, and having made oath himself that he does not owe the plaintiff, the eleven neighbors, called compurgators, avow on their oaths that they believe in their consciences he has affirmed the truth.

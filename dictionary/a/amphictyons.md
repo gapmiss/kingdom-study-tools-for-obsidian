@@ -1,0 +1,3 @@
+# Amphictyons
+
+**AMPHIC'TYONS**, _noun_ In Grecian history, an assembly or council of deputies from the different states of Greece, supposed to be so called from Amphictyon, the son of Deucalion, but this opinion is probably a fable. Ten or twelve states were represented in this assembly, which sat at Thermophlae, but ordinarily at Delphi. Each city sent two deputies, one called Hieromnemon and the other Pylagoras. The former inspected the sacrifices and ceremonies of religion; the latter, had the charge of deciding causes and differences between private persons. The former was elected by lot; the latter by a plurality of voices. They had an equal right to deliberate and vote in all matters relating to the common interests of Greece.

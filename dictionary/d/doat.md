@@ -1,0 +1,3 @@
+# Doat
+
+**DOAT**. \[See [[Dote]].\]

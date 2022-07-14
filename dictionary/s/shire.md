@@ -1,0 +1,5 @@
+# Shire
+
+**SHIRE**, _noun_ In England, a division of territory, otherwise called a county. The _shire_ was originally a division of the kingdom under the jurisdiction of an earl or count, whose authority was entrusted to the _sherif_. \[shire-reeve.\] On this officer the goverment ultimately devolved. In the United States, the corresponding division of a state is called a _county_, but we retain _shire_ in the in the compound _half-shire_; as when the county court is held in two towns in the same county alternately, we call one of the divisions a _half-shire_.
+
+In some states, _shire_ as the constituent part of the name of a county, as _Berkshire, Hampshire_, in Massachusetts. These being the names established by law, we cannot say, the _county of Berkshire_, and we cannot with propriety say, the _caounty of Berks_, for there is no county in Massa chusetts thus named.

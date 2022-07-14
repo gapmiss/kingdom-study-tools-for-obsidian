@@ -1,0 +1,7 @@
+# W
+
+**W** is the twenty third letter of the English Alphabet. It takes its written form and its name from the union of two Vs, this being the form of the Roman capital letter which we call U. The name, double u, being given to it from its form or composition, and not from its sound, especially the vowels. _w_ is properly a vowel, a simple sound, formed by opening the mouth with a close circular configuration of the lips. it is precisely the ou of the French, and the u of the Spaniards, Italians and Germans. With the oter vowels it forms diphthongs, which are of easy pronunciation; as in well, want, will, dwell; pronouced ooell, ooant, ooill, dooell. In English, it is always followed by another vowel, except when followed by h, as is when; but this case is an exception only in writing, and not in pronunciation, for h precedes _w_ in utterance; when being pronounced hooen. In Welsh, _w_ which is sounded as in English is used without another vowel, as in fwl, a fool; dwn, dun; dwb, mortar; gwn, a gun, and a gown.
+
+It is not improbable that the Romans pronouced v as we do _w_ for their volvo is our wallow; and volo, velle, is the English will, G. wollen. But this is uncertain.The German v has the sound of the English f, and _w_ that of the English v.
+
+**W**, at the end of words is often silent after a and o, as in law, saw, low, sow. In many words of this kind, _w_ represents the Saxon g; in other cases, it helps to form a diphthong, as in now, vow, new, strew.

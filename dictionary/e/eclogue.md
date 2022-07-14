@@ -1,0 +1,3 @@
+# Eclogue
+
+**EC'LOGUE**, _noun_ ec'log. \[Gr. choice, to select.\] Literally, a select piece. Hence, in poetry, a pastoral composition, in which shepherds are introduced conversing with each other, as the eclogues of Virgil; or it is a little elegant composition in a simple natural style and manner. An _eclogue_ differs from an idyllion, in being appropriated to pieces in which shepherds are introduced.

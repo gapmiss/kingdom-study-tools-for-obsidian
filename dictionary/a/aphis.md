@@ -1,0 +1,3 @@
+# Aphis
+
+**A'PHIS**, _noun_ In zoology, the puceron, vine fretter, or plant-louse; a genus of insects, belonging to the order of hemipters. The _aphis_ is furnished with an inflected beak, and with feelers longer than the thorax. In the same species, some individuals have four erect wings, and others are entirely without wings. The feet are of the ambulatory kind, and the belly usually ends in two horns, from which is ejected the substance called honey-dew. The species are very numerous.

@@ -1,0 +1,3 @@
+# Baptize
+
+**BAPTI'ZE**, _verb transitive_ \[See [[Baptism]].\] To administer the sacrament of baptism to; to christen. By some denominations of christians, baptism is performed by plunging, or immersing the whole body in water, and this is done to none but adults. More generally the ceremony is performed by sprinkling water on the face of a person, whether an infant or an adult, and in the case of an infant, by giving him a name, in the name of the Father, Son and Holy Spirit, which is called Christening.

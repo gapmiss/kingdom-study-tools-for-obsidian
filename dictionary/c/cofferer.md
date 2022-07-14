@@ -1,0 +1,3 @@
+# Cofferer
+
+**COFFERER**, _noun_ The _cofferer_ of the kings household in Great Britain, a principal officer of the court, next under the Controller. He was also a white-staff officer, and a member of the privy council. He had the special charge and oversight of the other officers of the household. This office is now suppressed, and the business is transacted by the lord steward and paymaster of the household.

@@ -1,0 +1,3 @@
+# Clinkstone
+
+**CLINKSTONE**, _noun_ A mineral which has a slaty structure, and is generally divisible into tabular masses, usually thick, sometimes thin like those of argillite. The cross fracture is commonly splintery. Its colors are dark greenish gray, yellowish, bluish, or ash gray; and it is usually translucent at the edges, sometimes opake. It occurs in extensive masses, often composed of columnar or tabular distinct concretions, more or less regular. It is usually found among secondary rocks; sometimes resting on basalt, and covered by greenstone.

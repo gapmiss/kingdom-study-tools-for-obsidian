@@ -1,0 +1,7 @@
+# Partnership
+
+**P'ARTNERSHIP**, _noun_ The association of two or more persons for the purpose of undertaking and prosecuting any business, particularly trade or manufactures, at their joint expense. In this case, the connection is formed by contract; each partner furnishing a part of the capital stock and being entitled to a proportional share of profit, or subject to a proportional share of loss; or one or more of the partners may furnish money or stock, and the other or others contribute their services. The duration of the _partnership_ may be limited by the contract, or it may be left indefinite, subject to be dissolved by mutual agreement. A _partnership_ or association of this kind is a standing or permanent company, and is denominated a firm or house. We say, A and B entered into _partnership_ for the importation and sale of goods, or for manufacturing cotton or glass.
+
+Partnerships may be and usually are associations of private persons, not incorporated. In other cases, the company is incorporated. Banking companies in the United States are usually incorporated, and are essentially partnerships, but do not bear that name. Manufacturing companies are also frequently incorporated.
+
+**1.** Joint interest or property.

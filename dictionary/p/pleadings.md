@@ -1,0 +1,3 @@
+# Pleadings
+
+**PLE'ADINGS**, _noun_ In law, the mutual altercations between the plaintiff and defendant, or written statements of the parties in support of their claims, comprehending the declaration, count or narration of the plaintiff, the plea of the defendant in reply, the replication of the plaintiff to the defendant's plea, the defendant's rejoinder, the plaintiff's sur-rejoinder, the defendant's rebutter, the plaintiff's sur-rebutter, etc. till the question is brought to issue, that is, to rest on a single point.

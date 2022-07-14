@@ -1,0 +1,3 @@
+# Coetaneous
+
+**COETANEOUS**, _adjective_ Of the same age with another; beginning to exist at the same time; with to. Every fault has penal effects, _coetaneous_ to the act. But with may be preferable to to. This word is sometimes used as synonymous with cotemporary; but _coetaneous_ seems properly to denote cotemporary in origin, rather than cotemporary in existence at any other period. It may however be used in both senses.

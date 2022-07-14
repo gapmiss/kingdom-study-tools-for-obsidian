@@ -1,0 +1,3 @@
+# Preposition
+
+**PREPOSI'TION**, _noun_ s as z. \[Latin proepositio, proepono, proepositus; proe and pono, to put.\] In grammar, a word usually put before another to express some relation or quality, action or motion to or from the thing specified; as medicines salutary to health; music agreeable to the ear; virtue is valued for its excellence; a man is riding to Oxford from London. Prepositions govern cases of nouns, and in English are sometimes placed after the word governed; as, which person do you speak to? for, to which person do you speak? This separation of the _preposition_ from the governed word is sometimes allowable in colloquial use, but is generally inelegant.

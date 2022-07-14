@@ -1,0 +1,5 @@
+# Armadillo
+
+**ARMADIL'LO**, _noun_
+
+A quadruped peculiar to America, called also tatoo, and in zoology, the dasypus. This animal has neither fore-teeth, nor dog-teeth; it is covered with a hard, bony shell, divided into movable belts, except on the forehead, shoulders and haunches, where it is not movable. The belts are connected by a membrane, which enables the animal to roll itself up like a hedge hog. These animals burrow in the earth, where they lie during the day time, seldom going abroad except at night. They are of different sizes; the largest 3 feet in length, without the tail. They subsist chiefly on fruits and roots; sometimes on insects and flesh. When attacked, they roll themselves into a ball, presenting their armor on all sides to any assailant; but they are inoffensive, and their flesh is esteemed good food.

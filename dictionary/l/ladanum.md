@@ -1,0 +1,3 @@
+# Ladanum
+
+**LAD'ANUM**, _noun_ The resinous juice which exsudes from the leaves of the Cistus ladanifera, a shrub which grows in Arabia, Candia, and other parts of the Archipelago. It is collected with a kind of rake, with leather thongs attached to it, with which the shrubs are brushed. The best sort is in dark-colored black masses, of the consistence of a soft plaster. The other sort is in long rolls coiled up, harder than the former, and of a paler color. It is chiefly used in external applications.

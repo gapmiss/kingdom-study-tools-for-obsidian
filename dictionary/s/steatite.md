@@ -1,0 +1,3 @@
+# Steatite
+
+**STEATITE**, _noun_ \[Gr., fat.\] Soapstone; so called from its smooth or unctuous feel; a subspecies of rhomboidal mica. It is of two kings, the common, and the pagodite or lard-stone. It is sometimes confounded with talck, to which its is allied. It is a compact stone, white, green of all shades, gray, brown or marbled, and sometimes herborized by black dendrites. It is found in metalliferous veins, with the ores of copper, lead, zink, silver and tin.

@@ -1,0 +1,3 @@
+# Metonymy
+
+**MET'ONYMY**, _noun_ \[Gr. over, beyond, and name.\] In rhetoric, a trope in which one word is put for another; a change of names which have some relation to each other; as when we say, 'a man keeps a good table.' instead of good provisions. 'We read Virgil.' that is, his poems or writings. 'They have Moses and the prophets, ' that is, their books or writings. A man has a clear head, that is, understanding, intellect; a warm heart, that is affections.

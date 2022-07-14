@@ -1,0 +1,5 @@
+# Ambergris
+
+**AM'BERGRIS**, _noun_
+
+A solid, opake, ash-colored inflammable substance, variegated like marble, remarkably light, rugged on its surface, and when heated, it has a fragrant odor. It does not effervesce with acids; it melts easily into a kind of yellow resin, and is highly soluble in spirit of wine. Various opinions have been entertained respecting its origin; but it is well ascertained, that it is indurated fecal matter, discharged by the spermaceti whale, a species of physeter. It has been found in that species of whale, but usually is found floating on the surface of the ocean, in regions frequented by whales; sometimes in masses of from 60 to 225 pounds weight. In this substance are found the beaks of the cuttle fish, on which that whale is known to feed. It is highly valued as a material in perfumery.

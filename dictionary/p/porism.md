@@ -1,0 +1,5 @@
+# Porism
+
+**PO'RISM**, _noun_ \[Gr. acquisition, to gain, a passing, to pass.\]
+
+In geometry, a name given by ancient geometers to two classes of propositions. Euclid gave this name to propositions involved in others which he was investigating, and obtained without a direct view to their discovery. These he called acquisitions, but such propositions are now called corollaries. A _porism_ is defined, 'a proposition affirming the possibility of finding such conditions as will render a certain problem indeterminate or capable of innumerable solutions.' It is not a theorem, nor a problem, or rather it includes both. It asserts that a certain problem may become indeterminate, and so far it partakes of the nature of a theorem, and in seeking to discover the conditions by which this may be effected, it partakes of the nature of a problem.

@@ -1,0 +1,3 @@
+# Zarnich
+
+**ZARNICH**, _noun_ \[See [[Arsenic]].\] The name of a genus of fossils, which are inflammable, of a plain uniform structure, not flexible or elastic, soluble in oil, and burning with a whitish flame and noxious smell like garlic. This substance is supposed to be sulphureted aresenic. Of this genus there are four species; one the real sandarach; another is sold under the name of orpiment.

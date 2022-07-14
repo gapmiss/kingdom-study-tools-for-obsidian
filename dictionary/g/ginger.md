@@ -1,0 +1,3 @@
+# Ginger
+
+**GIN'GER**, _noun_ \[Latin zinziber.\] A plant, or the root of a species of Amomum, a native of the East and West Indies. The roots are jointed, and the stalks rise two or three feet, with narrow leaves. The flower stems arise by the side of these, immediately from the root, naked and ending in an oblong scaly spike. The dried roots are used for various purposes, in the kitchen and in medicine.

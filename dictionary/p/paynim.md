@@ -1,0 +1,3 @@
+# Paynim
+
+**PAYNIM**. \[See [[Painim]].\]

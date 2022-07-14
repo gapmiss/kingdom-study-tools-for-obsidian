@@ -1,0 +1,3 @@
+# Ember
+
+**EMBER**, in ember-days, ember-weeks, is the Saxon emb-ren, or ymb-ryne, a circle, circuit or revolution, from ymb, around, and ren, or ryne, course, from the root of run. Ember-days are the Wednesday, Friday and Saturday, after Quadragesima Sunday, after Whitsunday, after Holyrood day in September, and after St. Lucia's day in December. Ember-days are days returning at certain seasons; Ember-weeks, the weeks in which these days fall; and formerly, our ancestors used the words Ember-fast and Ember-tide or season.

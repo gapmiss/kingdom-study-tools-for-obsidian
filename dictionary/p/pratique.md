@@ -1,0 +1,3 @@
+# Pratique
+
+**PRATIQUE**, _noun_ In commerce, primarily, converse; intercourse; the communication between a ship and the port in which she arrives. Hence, a license or permission to hold intercourse and trade with the inhabitants of a place, after having performed quarantine, or upon a certificate that the ship did not come from an infected place; a term used particularly in the south of Europe, where vessels coming from countries infected with contagious diseases, are subjected to quarantine.

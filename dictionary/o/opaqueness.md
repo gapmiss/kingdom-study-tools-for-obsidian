@@ -1,0 +1,3 @@
+# Opaqueness
+
+**OPAQUENESS**. \[See [[Opakeness]].\]

@@ -1,0 +1,3 @@
+# Archil
+
+**'ARCHIL**, _noun_ A lichen, which grows on rocks, in the Canary and Cape de Verd isles, which yields a rich purple color, not durable, but very beautiful. It is bruised between stones, and moistened with strong spirit of urine mixed with quick lime. It first takes a purplish red color, and then turns to blue. In the first state it is called archil; and in the second, lacmas or litmase, litmus.

@@ -1,0 +1,3 @@
+# Niter
+
+**NI'TER**, _noun_ \[In Hebrew, the verb under which this word appears signifies to spring, leap, shake, and to strip or break; in Ch. to strip or to fall off; in Syriac, the same; in Sam. to keep, to watch or guard.\] A salt, called also salt-peter \[stone-salt, \] and in the modern nomenclature of chemistry, nitrate of potash. It exists in large quantities in the earth, and is continually formed in inhabited places, on walls sheltered from rain, and in all situations where animal matters are decomposed, under stables and barns, etc. It is of great use in the arts; is the principal ingredient in gunpowder, and is useful in medicines, in preserving meat, butter, etc. It is a white substance, and has an acrid, bitterish taste.

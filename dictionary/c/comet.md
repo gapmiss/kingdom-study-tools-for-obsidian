@@ -1,0 +1,7 @@
+# Comet
+
+**COMET**, _noun_ An opake, spherical, solid body, like a planet, but accompanied with a train of light, performing revolutions about the sun, in an elliptical orbit, having the sun in one of its foci. In its approach to its perihelion, it becomes visible, and after passing its perihelion, it departs into remote regions and disappears. In popular language, comets are tailed, bearded or hairy, but these terms are taken from the appearance of the light which attends the, which, in different positions with respect to the sun, exhibits the form of a t ail or train, a beard, or a border of hair. When the _comet_ is westward of the sun and rises or sets before it, the light appears in the morning like a train beginning at the body of the _comet_ and extending westward and diverging in proportion to its extent. Thus the _comet_ of 1769, \[which I saw, \] when it rose in the morning, presented a luminous train that extended nearly from the horizon to the meridian. When the _comet_ and the sun are opposite, the earth being between them, the _comet_ is, to the view, immersed in its train and the light appears around its body like a fringe or border of hair. From the train of a _comet_ this body has obtained the popular name of a blazing star.
+
+Herschel observed several comets, which appeared to have no nucleus, but to be merely collections of vapor condensed about a center.
+
+**COMET**, _noun_ A game at cards.

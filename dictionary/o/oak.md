@@ -1,0 +1,5 @@
+# Oak
+
+**OAK**, _noun_ \[It is probably that the first syllable, _oak_ was originally an adjective expressing some quality, as hard or strong, and by the disuse of tree, _oak_ became the name of the tree.\]
+
+A tree of the genus Quercus, or rather the popular name of the genus itself, of which there are several species. The white _oak_ grows to a great size, and furnishes a most valuable timber; but the live _oak_ of the United States is the most durable timber for ships. In Hartford still stands the venerable _oak_ in the hollow stem of which was concealed and preserved the colonial charter of Connecticut, when Sir E. Andros, by authority of a writ of quo warranto from the British crown, attempted to obtain possession of it, in 1687. As it was then a large tree, it must now be nearly three hundred years old.

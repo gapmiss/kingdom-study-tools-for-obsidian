@@ -1,0 +1,3 @@
+# Zircon
+
+**ZIRCON**, _noun_ Called also jargon of Ceylon, a mineral originally found in Ceylon, in the sands of rivers, along with spinel, sapphire, tourmalin, and iron sand. _zircon_ hyacinth, and zirconite, are regarded as varieties of the same species. They are essentially composed of the earth zirconia, with silex, and a minute portion of iron. The primitive form of the crystals is an octahedron, composed of two four sided prisms. The common form is a rectangular four sided prism.

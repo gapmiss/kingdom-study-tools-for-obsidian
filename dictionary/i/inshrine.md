@@ -1,0 +1,3 @@
+# Inshrine
+
+**INSHRINE**. \[See [[Enshrine]].\]

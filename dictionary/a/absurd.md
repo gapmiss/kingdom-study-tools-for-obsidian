@@ -1,0 +1,3 @@
+# Absurd
+
+**ABSURD**', _adjective_ \[Latin absurdus, from ab and surdus, deaf, insensible.\] Opposed to manifest truth; inconsistent with reason or the plain dictates of common sense. An _absurd_ man acts contrary to the clear dictates of reason or sound judgement. An _absurd_ proposition contradicts obvious truth. An _absurd_ practice or opinion is repugnant to the reason or common apprehension of men. It is _absurd_ to say six and six make ten, or that plants will take root in stone.

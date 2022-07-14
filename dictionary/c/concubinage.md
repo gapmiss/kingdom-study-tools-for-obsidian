@@ -1,0 +1,5 @@
+# Concubinage
+
+**CONCUBINAGE**, _noun_ \[See [[Concubine]].\] The act or practice of cohabiting, as man and woman, in sexual commerce, without the authority of law, or a legal marriage. In a more general sense, this word is used to express any criminal or prohibited sexual commerce, including adultery, incest, and fornication. In some countries, _concubinage_ is a marriage of an inferior kind, or performed with less solemnity than a true or formal marriage; or marriage with a woman of inferior condition, to whom the husband does not convey his rank or quality. This is said to be still in use in Germany.
+
+In law, _concubinage_ is used as an exception against her that sueth for dower; in which it is alledged that she was not lawfully married to the man in whose lands she seeks to be endowed, but that she was his concubine.

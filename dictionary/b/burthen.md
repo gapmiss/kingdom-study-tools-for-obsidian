@@ -1,0 +1,3 @@
+# Burthen
+
+**BURTHEN**. \[See [[Burden]].\]

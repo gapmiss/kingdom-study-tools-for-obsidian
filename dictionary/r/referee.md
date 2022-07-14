@@ -1,0 +1,3 @@
+# Referee
+
+**REFEREE**', _noun_ One to whom a thing is referred; particularly, a person appointed by a court to hear, examine and decide a cause between parties, pending before the court, and make report to the court. In New England, a _referee_ differs from a arbitrator, in being appointed by the court to decide in a cause which is depending before that court. An arbitrator is chosen by parties to decide a cause between them.

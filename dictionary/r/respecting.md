@@ -1,0 +1,3 @@
+# Respecting
+
+**RESPECT'ING**, _participle present tense_ Regarding; having regard to; relating to. This word, like concerning, has reference to a single word or to a sentence. In the sentence, 'his conduct _respecting_ us is commendable, ' _respecting_ has reference to conduct. But when we say, 'respecting a further appropriation of money, it is to be observed, that the resources of the country are inadequate, ' _respecting_ has reference to the whole subsequent clause or sentence.

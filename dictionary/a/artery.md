@@ -1,0 +1,5 @@
+# Artery
+
+**'ARTERY**, _noun_ \[Gr. from air and to preserve or contain; so called, from the opinion of the ancients, that the arteries contained or circulated air. The term was also applied to the trachea or wind pipe, anteria aspera.
+
+A cylindrical vessel or tube, which conveys the blood from the heart to all parts of the body. There are two principal arteries; the aorta, which rises from the left ventricle and ramifies through the whole body; and the pulmonary _artery_ which conveys the blood from the right ventricle to the lungs, to undergo respiration. An _artery_ is composed of three coats; the outer consists of condensed cellular membrane, and is supplied with numerous blood vessels and nerves; the middle coat consists of circular fibers, generally supposed to be muscular; the inner coat, thin, smooth, and dense, confines the blood within its canal, and facilitates its motion.

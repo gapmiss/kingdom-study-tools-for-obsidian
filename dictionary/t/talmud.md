@@ -1,0 +1,3 @@
+# Talmud
+
+**TAL'MUD**, _noun_ The body of the Hebrew laws, traditions and explanations; or the book that contains them. The _talmud_ contains the laws, and a compilation of expositions of duties imposed on the people, either in Scripture, by tradition, or by authority of their doctors, or by custom. It consists of two parts, the Mischna, and the Gemara; the former being the written law, the latter a collection of traditions and comments of Jewish doctors.

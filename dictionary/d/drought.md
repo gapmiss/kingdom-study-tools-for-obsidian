@@ -1,0 +1,3 @@
+# Drought
+
+**DROUGHT**. \[See [[Drouth]].\]

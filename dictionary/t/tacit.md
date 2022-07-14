@@ -1,0 +1,3 @@
+# Tacit
+
+**TAC'IT**, _adjective_ \[Latin tacitus, from taceo, to be silent, that is, to stop, or to close. See [[Tack]].\] Silent; implied, but not expressed. _tacit_ consent is consent by silence, or not interposing an objection. So we say, a _tacit_ agreement or covenant of men to live under a particular government, when no objection or opposition is made; a _tacit_ surrender of a part of our natural rights; a _tacit_ reproach, etc.

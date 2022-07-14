@@ -1,0 +1,3 @@
+# Cynosure
+
+**CYNOSURE**, _noun_ \[Gr., the tail of the dog, ursa minor, the little bear.\] The constellation near the north pole, consisting of seven stars, four of which are disposed like the four wheels of a chariot, and three lengthwise, like the beam; hence called the chariot or Charless wain. As seamen are accustomed to steer by this constellation, ti si sometimes taken for that which directs or attracts attention.

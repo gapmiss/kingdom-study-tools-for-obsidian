@@ -1,0 +1,3 @@
+# Theurgy
+
+**THE'URGY**, _noun_ \[Gr. God, and work.\] The art of doing things which it is the peculiar province of God to do; or the power or act of performing supernatural things by invoking the names of God or of subordinate agents; magic. This has been divided by some writers into three parts; _theurgy_ or the operation by divine or celestial means; natural magic, performed by the powers of nature; and necromancy, which proceeds by invoking demons.

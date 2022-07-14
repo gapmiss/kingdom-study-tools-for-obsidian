@@ -1,0 +1,3 @@
+# Dissever
+
+**DISSEVER**, _verb transitive_ \[dis and sever. In this word, dis, as in dispart, can have no effect, unless to augment the signification, as dis and sever both denote separation.\] To dispart; to part in two; to divide asunder; to separate; to disunite, either by violence or not. When with force, it is equivalent to rend and burst. It may denote either to cut or to tear asunder. In beheading, the head is dissevered from the body. The lightning may _dissever_ a branch from the stem of a tree. Jealousy dissevers the bonds of friendship. The reformation dissevered the Catholic church; it dissevered Protestants from catholics.

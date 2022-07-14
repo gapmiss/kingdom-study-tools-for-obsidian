@@ -1,0 +1,3 @@
+# Cockroach
+
+**COCKROACH**, _noun_ A genus of insects, the Blatta, of several species. They have four semicrustaceous wings, and resemble the beetle; the head is inflected towards the breast; the feelers are hard like bristles; the elytra and wings are plain and resemble parchment. These animals are very troublesome, as they enter chests of clothes, meal-tubs, pantries, and infest beds. They avoid the light, and have a very unsavory smell.

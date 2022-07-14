@@ -1,0 +1,3 @@
+# Placard
+
+**PLAC'ARD**, _noun_ Properly, a written or printed paper posted in a public place. It seems to have been formerly the name of an edict, proclamation or manifesto issued by authority, but this sense is, I believe, seldom or never annexed to the word. A _placard_ now is an advertisement, or a libel, or a paper intended to censure public or private characters or public measures, posted in a public place. In the case of libels or papers intended to censure public or private characters, or the measures of government, these papers are usually pasted up at night for secrecy.

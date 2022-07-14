@@ -1,0 +1,3 @@
+# Minium
+
+**MIN'IUM**, _noun_ \[Latin\] The red oxyd of lead, produced by calcination. Lead exposed to air while melting is covered with a gray dusky pellicle. This taken off and agitated becomes a greenish gray powder, inclining to yellow. This oxyd, separated by sifting from the grains of lead which it contains, and exposed to a more intense heat, takes a deep yellow color, and in this state it is called massicot. The latter, slowly heated, takes a beautiful red color, and is called _minium_

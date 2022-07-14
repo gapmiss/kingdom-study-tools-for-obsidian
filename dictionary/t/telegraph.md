@@ -1,0 +1,3 @@
+# Telegraph
+
+**TEL'EGRAPH**, _noun_ \[Gr. at a distance, and to write.\] A machine for communicating intelligence from a distance by various signals or movements previously agreed on; which signals represent letters, words or ideas which can be transmitted form one station to another, as far as the signals can be seen. This machine was invented by the French about the year 1793 or 1794, and is now adopted by other nations.

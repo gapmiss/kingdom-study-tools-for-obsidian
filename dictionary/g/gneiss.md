@@ -1,0 +1,3 @@
+# Gneiss
+
+**GNE'ISS**, _noun_ ne'is. In mineralogy, a species of aggregated rock, composed of quartz, feldspar and mica, of a structure more or less distinctly slaty. The layers, whether straight or curved, are frequently thick, but often vary considerably in the same specimen. It passes on one side into granite, from which it differs in its slaty structure, and on the other into mica slate. It is rich in metalic ores.

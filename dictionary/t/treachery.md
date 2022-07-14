@@ -1,0 +1,3 @@
+# Treachery
+
+**TREACHERY**, _noun_ trech'ery. Violation of allegiance or of faith and confidence. The man who betrays his country in any manner, violates his allegiance, and is guilty of _treachery_ This is treason. The man who violates his faith pledged to his friend, or betrays a trust in which a promise of fidelity is implied, is guilty of _treachery_ The disclosure of a secret committed to one in confidence, is _treachery_ This is perfidy.

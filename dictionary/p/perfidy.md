@@ -1,0 +1,3 @@
+# Perfidy
+
+**PER'FIDY**, _noun_ \[Latin perfidia; per and fides, faith.\] The act of violating faith, a promise, vow or allegiance; treachery; the violation of a trust reposed. _perfidy_ is not applied to violations of contracts in ordinary pecuniary transactions, but to violations of faith or trust in friendship, in agency and office, in allegiance, in connubial engagements, and in the transactions of kings.

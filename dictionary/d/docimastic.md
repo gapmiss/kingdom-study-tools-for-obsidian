@@ -1,0 +1,3 @@
+# Docimastic
+
+**DOCIMASTIC**, _adjective_ \[Gr., to try, essay, examine, proved; to prove.\] Properly, essaying, proving by experiments, or relating to the assaying of metals. The _docimastic_ art is otherwise called metallurgy. It is the art of assaying metals, or the art of separating them from foreign matters, and determining the nature and quantity of metallic substance contained in any ore or mineral.

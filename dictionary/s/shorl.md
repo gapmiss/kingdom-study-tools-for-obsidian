@@ -1,0 +1,7 @@
+# Shorl
+
+**SHORL**, _noun_ A mineral, usually of a black color, found in masses of an intermediate form, or crystallized in three or nine sided prisms, which when entire are terminated by three sided summits. The surface of the crystals is longitudinally streaked. the amorphous sort presents thin straight distinct columnur concretions, sometimes parallel, sometimes diverging or stelliform. This is called also tourmalin.
+
+The _shorl_ of the mineralogists of the last century comprehended a variety of substances which later observations have separated into several species. The green _shorl_ is the epidote, or the vesuvian, or the acinolite. The violet _shorl_ an the lenticular _shorl_ ar ethe axinite. The black volcanic _shorl_ is si the augite. The white Vesuvian _shorl_ is the sommite. The white grenatiform is the leucite. The white prismatic is the pycnite, a species of the topaz, and another is a variety of feldspar. Of the blue _shorl_ one variety is the oxyd of titanium, another the sappare, and another the phosphate of irin. The _shorl_ cruciform is the granitite. The octahedral _shorl_ is the octahedrite or anatase. The red _shorl_ of Hungary and the purple of Madagascar, are varieties of the oxyd of titanium. The spathic _shorl_ is th espodummene. the black _shorl_ and th eelectric _shorl_ only remain, and to this species the name tourmalin was given by that celebrated mineralogist, the Abbe Hauy.
+
+Blue _shorl_ is a variety of Hauyne. Red and titanic _shorl_ is rutile.

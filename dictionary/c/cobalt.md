@@ -1,0 +1,7 @@
+# Cobalt
+
+**COBALT**, _noun_ A mineral of a reddish gray or grayish white color, very brittle, of a fine close grain, compact, but easily reducible to powder. It crystalizes in bundles of needles, arranged one over another. It is never found in a pure state; but usually as an oxyd, or combined with arsenic or its acid, with sulphur, iron, etc. Its ores are arranged under the following species, viz. Arsenical _cobalt_ of a white color, passing to steel gray; its texture is granular, and when heated it exhales the odor of garlic: gray _cobalt_ a compound of _cobalt_ arsenic, iron, and sulphur, of a white color, with a tinge of red; its structure is foliated, and its crystals have a cube for their primitive form; sulphuret of _cobalt_ compact and massive in its structure: oxyd of _cobalt_ brown or brownish black, generally friable and earthy: sulphate and arseniate of _cobalt_ both of red color, the former soluble in water. The impure oxyd of _cobalt_ is called zaffer; but when fused with three parts of siliceous sand and an alkaline flux, it is converted into a blue glass, called smalt. The great use of _cobalt_ is to give a permanent blue color to glass and enamels upon metals, porcelain and earthern wares.
+
+**COBALT**\-bloom, acicular arseniate of _cobalt_
+
+**COBALT**\-crust, earthy arseniate of _cobalt_

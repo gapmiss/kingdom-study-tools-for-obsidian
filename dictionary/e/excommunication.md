@@ -1,0 +1,3 @@
+# Excommunication
+
+**EXCOMMUNICA'TION**, _noun_ The act of ejecting from a church; expulsion from the communion of a church, and deprivation of its rights, privileges and advantages; an ecclesiastical penalty or punishment inflicted on offenders. _excommunication_ is an ecclesiastical interdict, of two kinds, the lesser and the greater; the lesser _excommunication_ is a separation or suspension of the offender from partaking of the eucharist; the greater, is an absolute separation and exclusion of the offender from the church and all its rites and advantages.

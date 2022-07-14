@@ -1,0 +1,3 @@
+# Palette
+
+**PALETTE**. \[See [[Pallet]].\]

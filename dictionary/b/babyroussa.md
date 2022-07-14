@@ -1,0 +1,3 @@
+# Babyroussa
+
+**BABYROUS'SA**, _noun_ In zoology, the Indian hog, a native of Celebes, and of Buero, but not found on the continent of Asia or of Africa. This quadruped belongs to the genus, Sus, in the class Mammalia, and order Bellua. From the outside of the upper jaw, spring two teeth twelve inches long, bending like horns, and almost touching the forehead. Along the back are some weak bristles, and on the rest of the body only a sort of wool. These animals live in herds, feed on herbage, are sometimes tamed, and their flesh is well tasted. When pursued hard, they rush into the sea, swim or dive and pass from isle to isle. In the forest, they rest their heads by hooking their upper tusks on a bough.

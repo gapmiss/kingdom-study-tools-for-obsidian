@@ -1,0 +1,3 @@
+# Myrrh
+
+**MYRRH**, _noun_ mer. \[Latin myrrha.\] A gum-resin that comes in the form of drops or globules of various colors and sizes, of a pretty strong but agreeable smell, and of a bitter taste. It is imported from Egypt, but chiefly from the southern or eastern parts of Arabia; from what species of tree or plant it is procured, is unknown. As a medicine, it is a good stomachic, antispasmodic and cordial.

@@ -1,0 +1,3 @@
+# Tamarind
+
+**TAM'ARIND**, _noun_ A tree, a native of the East Indies, and of Arabia and Egypt. It is cultivated in both the Indies for the sake of its shade and for its cooling, grateful acid fruit, the pulp of which, mixed with boiled sugar, is imported into northern countries. The stem of the tree is lofty, large, and crowned with wide spreading branches; the flowers are in simple clusters, terminating the short lateral branches.

@@ -1,0 +1,3 @@
+# Copal
+
+**COPAL**, _noun_ The concrete juice of a tree growing in Mexico or New Spain, hard, shining, transparent, citron-colored, and odoriferous. It is not strictly a gum nor a resin, as it has not the solubility in water common to gums, nor that in spirit of wine common to resins. In these respects it rather resembles amber. It may be dissolved by digestion in lintseed oil, with a heat little less than sufficient to boil or decompose the oil. This solution, diluted with spirit of turpentine, forms a beautiful transparent varnish.

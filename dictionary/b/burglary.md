@@ -1,0 +1,3 @@
+# Burglary
+
+**BURG'LARY**, _noun_ The act or crime of nocturnal house breaking, with an intent to commit a felony. To constitute this crime, the act must be committed in the night, or when there is not day-light enough to discern a man's face. It must be in a mansion house, or in an adjoining building which is a part or parcel of the mansion. There must be an actual breaking and an entry; but an opening made by the offender, as by taking out a pane of glass, or lifting a window, raising a latch, picking a lock, or removing any fastening, amounts to a breaking; and a putting in of the hand, after such breaking, is an entry. The act must also be done with an intent to commit felony.

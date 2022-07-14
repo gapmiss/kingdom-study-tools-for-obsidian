@@ -1,0 +1,3 @@
+# Crimosin
+
+**CRIMOSIN**. \[See [[Crimson]].\]

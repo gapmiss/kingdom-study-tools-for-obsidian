@@ -1,0 +1,3 @@
+# Telescope
+
+**TEL'ESCOPE**, _noun_ \[Gr. end, or at a distance, probably the latter, and to see.\] An optical instrument employed in viewing distant objects, as the heavenly bodies. It assists the eye chiefly in two ways; first, by enlarging the visual angle under which a distant object is seen, and thus magnifying that object; and secondly, by collecting and conveying to the eye a larger beam of light than would enter the naked organ, and thus rendering objects distinct and visible which would otherwise be indistinct or invisible. Its essential parts are the object glass, which collects the beam of light and forms an image of the object, and the eye glass, which is a microscope by which the image is magnified.

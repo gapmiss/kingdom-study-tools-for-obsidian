@@ -1,0 +1,3 @@
+# Lignum-vitae
+
+**LIGNUM-VIT'AE**, _noun_ \[Latin\] Guaiacum or pockwood, a genus of plants, natives of warm climates. The common Lignumvitae is a native of the warm latitudes of America. If becomes a large tree, having a hard, brownish, brittle bark, and its wood firm, solid, ponderous, very resinous, of a blackish yellow color in the middle, and of a hot aromatic taste. It is of considerable use in medicine and the mechanical arts, being wrought into utensils, wheels, cogs, and various articles of turnery.

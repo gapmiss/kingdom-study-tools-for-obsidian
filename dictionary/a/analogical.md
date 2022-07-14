@@ -1,0 +1,3 @@
+# Analogical
+
+**ANALOG'ICAL**, _adjective_ Having analogy; used by way of analogy; bearing some relation. Thus _analogical_ reasoning is reasoning from some similitude which things known bear to things unknown. An _analogical_ word is one which carries with it some relation to the original idea. Thus the word firm primarily denotes solidity or compactness in a material body; and by analogy, when used of the mind, it conveys the idea of qualities having a similitude to the solidity of bodies, that is, fixedness or immovability.

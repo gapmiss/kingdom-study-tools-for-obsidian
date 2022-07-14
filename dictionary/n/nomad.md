@@ -1,0 +1,3 @@
+# Nomad
+
+**NOMAD**, _noun_ \[Gr. Living on pasturage, to distribute or divide, to feed. This verb is connected with Latin Nemus, a wood, a place over-grown with trees, and also a pasture, the primary sense of which is probably to spring or shoot, for the verb signifies among other things, to leap, to dance, and may be allied to Eng. nimble. Cattle originally subsisted by browsing, as they still do in new settlements.\] One who leads a wandering life, and subsists by tending herds of cattle which graze on herbage of spontaneous growth. Such is the practice at this day in the central and northern parts of Asia, and the Numidians in Africa are supposed to have been so called from this practice.

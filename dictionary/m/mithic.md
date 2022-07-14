@@ -1,0 +1,3 @@
+# Mithic
+
+**MITHIC**. \[See [[Mythic]].\]

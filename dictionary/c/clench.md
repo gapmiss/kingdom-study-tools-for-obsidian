@@ -1,0 +1,3 @@
+# Clench
+
+**CLENCH**. \[See [[Clinch]].\]

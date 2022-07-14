@@ -1,0 +1,3 @@
+# Carbonic
+
+**CARBONIC**, _adjective_ Pertaining to carbon, or obtained from it. The _carbonic_ acid is a saturated combination of carbon and oxygen. It has been called fixed air, aerial acid, mephitic gas, and cretaceous acid, or acid of chalk. It is found, in some places, in a state of gas; it exists in the atmosphere, and is disengaged from fermenting liquors, and from decomposing vegetable and animal substances. It is heavier than common air, and subsides into low places, vaults and wells.

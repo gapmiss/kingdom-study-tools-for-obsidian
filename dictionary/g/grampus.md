@@ -1,0 +1,3 @@
+# Grampus
+
+**GRAM'PUS**, _noun_ A fish of the cetaceous order, and genus Delphinus. This fish grows to the length of twenty five feet, and is remarkably thick in proportion to its length. The nose is flat and turns up at the end. It has 30 teeth in each jaw. The spout-hole is on the top of the neck. The color of the back is black; the belly is of a snowy whiteness; and on each shoulder is a large white spot. This fist is remarkably voracious.

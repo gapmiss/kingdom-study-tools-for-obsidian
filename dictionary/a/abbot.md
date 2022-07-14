@@ -1,0 +1,5 @@
+# Abbot
+
+**AB'BOT**, _noun_ \[formerly abbat, from abba, latinized abbas, or from Heb. plural.\]
+
+The superior or governor of an abbey or monastery. Originally monasteries were founded in retired places, and the religious had no concern with secular affairs, being entirely subject to the prelates. But the abbots possessing most of the learning, in ages of ignorance, were called from their seclusion to aid the churches in opposing heresies; monasteries were founded in the vicinity of cities; the abbots became ambitious and set themselves to acquire wealth and honors; some of them assumed the miter, threw off their dependence on the bishops, and obtained seats in parliament. For many centuries, princes and noblemen bore the title of abbots. At present, in catholic countries, abbots are regular, or such as take the vow, and wear the habit of the order; and commendatory, such as are seculars, but obliged, when of suitable age, to take orders. The title is borne also by some persons, who have not the government of a monastery; as bishops, whose sees were formerly abbeys.

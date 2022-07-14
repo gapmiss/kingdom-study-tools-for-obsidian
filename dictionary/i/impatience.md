@@ -1,0 +1,3 @@
+# Impatience
+
+**IMPA'TIENCE**, _noun_ \[Latin impatientia, from impatiens; in and patior, to suffer.\] Uneasiness under pain or suffering; the not enduring pain with composure; restlessness occasioned by suffering positive evil, or the absence of expected good. _impatience_ is not rage, nor absolute inability to bear pain; but it implies want of fortitude, or of its exercise. It usually springs from irritability of temper.

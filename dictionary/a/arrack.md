@@ -1,0 +1,3 @@
+# Arrack
+
+**ARRACK**', _noun_ Contacted into rack. a spirituous liquor imported from the East Indies. The name is said to signify, in the East, any spirituous liquor; but that which usually bears this name is toddy, a liquor distilled from the juice of the cocoanut tree, procured by incision. Some persons allege it to be a spirit distilled from rice or sugar, fermented with the juice of the cocoanut.

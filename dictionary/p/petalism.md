@@ -1,0 +1,3 @@
+# Petalism
+
+**PET'ALISM**, _noun_ \[Gr. See [[Petal]].\] A form of sentence among the ancient Syracusans, by which they proscribed a citizen whose wealth or popularity alarmed their jealousy, or who was suspected of aspiring to sovereign power; temporary proscription, or banishment for five years. The mode was to give their votes by writing his name on a leaf. _petalism_ in Syracuse answered to ostracism in Athens.

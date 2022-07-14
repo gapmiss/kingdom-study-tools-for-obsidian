@@ -1,0 +1,3 @@
+# Spiral
+
+**SPI'RAL**, _adjective_ \[Latin spira, a spire.\] Winding round a cylinder or other round body, or in a circular form, and at the same time rising or advancing forward; winding like a screw. The magnificent column in the Place Vendeme, at Paris, is divided by a _spiral_ line into compartments. It is formed with _spiral_ compartments, on which are engraved figures emblematical of the victories of the French armies. A whirlwind is so named from the _spiral_ motion of the air. Water in a tunnel descends in a _spiral_ form.

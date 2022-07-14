@@ -1,0 +1,3 @@
+# Hyena
+
+**HYE'NA**, _noun_ \[Latin hyaena.\] A quadruped of the genus Canis, having small naked ears, four toes on each foot, a straight jointed tail, and erect hair on the neck; an inhabitant of Asiatic Turkey, Syria, Persia and Barbary. It is a solitary animal, and feeds on flesh; it preys on flocks and herds, and will open graves to obtain food. It is a fierce, cruel and untamable animal, and is sometimes called the tiger-wolf.

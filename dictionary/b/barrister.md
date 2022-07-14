@@ -1,0 +1,3 @@
+# Barrister
+
+**BAR'RISTER**, _noun_ \[from bar.\] A counselor, learned in the laws, qualified and admitted to please at the bar, and to take upon him the defense of clients; answering to the advocate or licentiate of other countries. Anciently, barristers were called, in England, apprentices of the law. Outer barristers are pleaders without the bar, to distinguish them from inner barristers, benchers or readers, who have been sometime admitted to please within the bar, as the king's counsel are.

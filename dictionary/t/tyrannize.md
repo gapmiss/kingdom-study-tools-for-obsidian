@@ -1,0 +1,3 @@
+# Tyrannize
+
+**TYR'ANNIZE**, _verb intransitive_ To act the tyrant; to exercise arbitrary power; to rule with unjust and oppressive severity; to exercise power over others not permitted by law or required by justice, or with a severity not necessary to the ends of justice and government. A prince will often _tyrannize_ over his subjects; republican legislatures sometimes _tyrannize_ over their fellow citizens, masters sometimes _tyrannize_ over their servants or apprentices. A husband may not _tyrannize_ over his wife and children.

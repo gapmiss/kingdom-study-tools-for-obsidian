@@ -1,0 +1,3 @@
+# Manerial
+
+**MANERIAL**. \[See [[Manorial]].\]

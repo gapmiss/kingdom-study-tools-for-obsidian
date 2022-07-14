@@ -1,0 +1,3 @@
+# Tanistry
+
+**TAN'ISTRY**, _noun_ In Ireland, a tenure of lands by which the proprietor had only a life estate, and to this he was admitted by election. The primitive intention seems to have been that the inheritance should descend to the oldest or most worthy of the blood and name of the deceased. This was in reality giving it to the strongest, and the practice often occasioned bloody wars in families.

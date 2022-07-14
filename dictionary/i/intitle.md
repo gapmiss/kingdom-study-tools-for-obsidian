@@ -1,0 +1,3 @@
+# Intitle
+
+**INTITLE**. \[See [[Entitle]].\]

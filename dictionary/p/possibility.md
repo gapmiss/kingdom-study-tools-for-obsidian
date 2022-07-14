@@ -1,0 +1,3 @@
+# Possibility
+
+**POSSIBIL'ITY**, _noun_ \[from possible.\] The power of being or existing; the power of happening; the state of being possible. It often implies improbability or great uncertainty. There is a _possibility_ that a new star may appear this night. There is a _possibility_ of a hard frost in July in our latitude. It is not expedient to hazard much on the bare _possibility_ of success. It is prudent to reduce contracts to writing, and to render them so explicit as to preclude the _possibility_ of mistake or controversy.

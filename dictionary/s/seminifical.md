@@ -1,0 +1,3 @@
+# Seminifical
+
+**SEMINIF'ICAL**,

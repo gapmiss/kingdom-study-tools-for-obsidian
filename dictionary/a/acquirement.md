@@ -1,0 +1,3 @@
+# Acquirement
+
+**ACQUI'REMENT**, _noun_ The act of acquiring, or that which is acquired; attainment. It is used in opposition to natural gifts; as, eloquence, and skill in music and painting, are acquirement; genius, the gift of nature. it denotes especially personal attainments, in opposition to material or external things gained, Which are more usually called acquisitions; but this distinction is not always abserved.

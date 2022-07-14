@@ -1,0 +1,3 @@
+# Diatonic
+
+**DIATONIC**, _adjective_ \[Gr., by or through, sound.\] Ascending or descending, as in sound, or from sound to sound. This epithet is given to a scale or gammut, to intervals of a certain kind, or to music composed of these intervals; as a _diatonic_ series; a _diatonic_ interval; _diatonic_ melody or harmony. It is applied to ordinary music, containing only the two greater and lesser tones, and the greater semitone.

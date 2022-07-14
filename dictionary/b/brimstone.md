@@ -1,0 +1,3 @@
+# Brimstone
+
+**BRIM'STONE**, _noun_ Sulphur; a hard, brittle, inflammable substance, of a lemon yellow color, which has no smell, unless heated, and which becomes negatively electric by heat and friction. It is found, in great quantities, and sometimes pure, in the neighborhood of volcanoes. It is an ingredient in a variety of minerals and ores. The sulphur of commerce is procured from its natural beds, or artificially extracted from pyrites.

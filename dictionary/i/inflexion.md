@@ -1,0 +1,3 @@
+# Inflexion
+
+**INFLEXION**. \[See [[Inflection]].\]

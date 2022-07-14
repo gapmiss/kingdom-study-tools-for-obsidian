@@ -1,0 +1,3 @@
+# Bister
+
+**BIS'TER**, _noun_ Among painters, the burnt oil extracted from the soot of wood; a brown pigment. To prepare it, soot \[that os beach is the best' is put into water, in the proportion of two pounds to a gallon, and boiled half an hour; after standing to settle, and while hot, the clearer part of the fluid must be poured off from the sediment, and evaporated to dryness; the remainder is _bister_

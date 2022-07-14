@@ -1,0 +1,3 @@
+# Escot
+
+**ESCOT**. \[See [[Scot]].\]

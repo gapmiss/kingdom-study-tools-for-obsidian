@@ -1,0 +1,3 @@
+# Yesty
+
+**YESTY**. \[See [[Yeasty]].\]

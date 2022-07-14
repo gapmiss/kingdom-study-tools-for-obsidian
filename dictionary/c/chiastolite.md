@@ -1,0 +1,3 @@
+# Chiastolite
+
+**CHIASTOLITE**, _noun_ A mineral, called also macle, whose crystals are arranged in a peculiar manner. The form of the crystals is a four-sided prism, whose bases are rhombs, differing little from squares. But each crystal, when viewed at its extremities, or on a transverse section, is obviously composed of two very different substances; and its general aspect is that of a black prism, passing longitudinally through the axis of another prism which is whitish. The term macle, as the name of a distinct species, applies to the whitish prisms only.

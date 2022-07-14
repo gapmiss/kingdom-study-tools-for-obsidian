@@ -1,0 +1,3 @@
+# Toleration
+
+**TOLERA'TION**, _noun_ \[Latin toleratio.\] The act of tolerating; the allowance of that which is not wholly approved; appropriately, the allowance of religious opinions and modes of worship in a state, when contrary to or different from those of the established church or belief. _toleration_ implies a right in the sovereign to control men in their opinions and worship, or it implies the actual exercise of power in such control. Where no power exists or none is assumed to establish a creed and a mode of worship, there can be no _toleration_ in the strict sense of the word, for one religious denomination has as good a right as another to the free enjoyment of its creed and worship.

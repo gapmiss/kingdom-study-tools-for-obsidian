@@ -1,0 +1,3 @@
+# Hyphen
+
+**HY'PHEN**, _noun_ \[Gr. under one, or to one.\] A mark or short line made between two words to show that they form a compound word, or are to be connected; as in pre-occupied; five-leafed; ink-stand. In writing and printing, the _hyphen_ is used to connect the syllables of a divided word, and is placed after the syllable that closes a line, denoting the connection of that syllable or part of a word with the first syllable of the next line.

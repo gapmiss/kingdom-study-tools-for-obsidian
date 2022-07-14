@@ -1,0 +1,3 @@
+# Crustaceous
+
+**CRUSTACEOUS**, _adjective_ \[Latin\] Pertaining to crust; like crust; of the nature of crust or shell. _crustaceous_ animals, or Crustacea, have a crust or shell composed of several jointed pieces, and in their external form have a great resemblance to insects; but in their internal structure and economy, they are quite different. They were arranged by Linne, in the same class with the insects, but now form a class by themselves. They include the crab, lobster, shrimp, etc.

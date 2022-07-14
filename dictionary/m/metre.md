@@ -1,0 +1,3 @@
+# Metre
+
+**METRE**. \[See [[Meter]].\]

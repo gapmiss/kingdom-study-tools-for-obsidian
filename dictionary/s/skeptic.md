@@ -1,0 +1,3 @@
+# Skeptic
+
+**SKEPTIC**. \[See [[Sceptic]].\]

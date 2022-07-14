@@ -1,0 +1,3 @@
+# Preternatural
+
+**PRETERNAT'URAL**, _adjective_ \[Latin proeter and natural.\] Beyond what is natural, or different from what is natural; irregular. We call those events in the physical world _preternatural_ which are extraordinary, which are deemed to be beyond or without the ordinary course of things, and yet are not deemed miraculous; in distinction from events which are supernatural, which cannot be produced by physical laws or powers, and must therefore be produced by a direct exertion of omnipotence. We also apply the epithet to things uncommon or irregular; as a _preternatural_ swelling; a _preternatural_ pulse; a _preternatural_ excitement or temper.

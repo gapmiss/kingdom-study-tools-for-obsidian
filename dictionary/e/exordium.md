@@ -1,0 +1,3 @@
+# Exordium
+
+**EXORD'IUM**, _noun_ _plural_ exordiums. \[Latin from exodior; ex and ordior, to begin. See [[Order]].\] In oratory, the beginning; the introductory part of a discourse, which prepares the audience for the main subject; the preface or proemial part of a composition. The _exordium_ may be formal and deliberate, or abrupt and vehement, according to the nature of the subject and occasion.

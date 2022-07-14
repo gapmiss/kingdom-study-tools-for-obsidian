@@ -1,0 +1,3 @@
+# Chrysalis
+
+**CHRYSALIS**, _noun_ The particular form which butterflies, moths, and some other insects assume, before they arrive at their winged or perfect state. It is called also aurelia, from aurum, gold. In this form, the animal is in a state of rest or insensibility; having no organs for taking nourishment, nor wings, nor legs. The external covering is cartilaginous, and usually smooth and glossy; sometimes hairy. The name is taken from the yellow color of certain species; but they are of different colors, as green, black, etc.
