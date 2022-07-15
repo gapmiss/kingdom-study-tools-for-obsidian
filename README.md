@@ -1,5 +1,7 @@
 # Kingdom Study Tools for [Obsidian](https://obsidian.md)
 
+Download → [kingdom-study-tools-for-obsidian.zip](https://github.com/gapmiss/kingdom-study-tools-for-obsidian/releases/download/0.1.0/kingdom-study-tools-for-obsidian.zip)
+
 ## Tools available:
 
 - Holy Bible (KJV)
